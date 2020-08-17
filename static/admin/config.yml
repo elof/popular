@@ -79,7 +79,6 @@ collections:
     folder: "_data/jeanne"
     slug: "{{year}}-{{month}}-{{day}}-{{slug}}"
     create: true
-    identifier_field: "name"
     fields:
       - {
           label: "Template",
@@ -93,7 +92,7 @@ collections:
         pattern: [/]
         hint: "Path must start with /"
       - { name: "date", label: "Date", widget: "datetime" }
-      - { name: "name", label: "Name", widget: "string" }
+      - { name: "title", label: "Title", widget: "string" }
       - label: "Meta Description"
         name: "metaDescription"
         widget: text
