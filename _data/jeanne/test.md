@@ -2,7 +2,7 @@
 template: BlogPost
 path: /jeanne/spin-art-fun
 date: 2020-02-20T07:08:53.137Z
-name: How to make spin art!
+title: How to make Spin Art!
 metaDescription: >-
   This guide will walk you through how to make spin art with your littles
   without breaking the bank!
