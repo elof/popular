@@ -3,6 +3,7 @@ import Helmet from "react-helmet"
 import { graphql } from 'gatsby'
 import Layout from "../components/layout"
 
+
 const ApplyPage = ({
   data: {
     site
@@ -20,7 +21,15 @@ const ApplyPage = ({
           <p>Inspire others &rarr;</p>
         </div>
         <div>
-        <form name="Application" className="form-container" data-netlify="true">
+        <form name="Application" method="post" className="form-container" data-netlify="true" data-netlify-honeypot="bot-field">
+          <p hidden>
+            <label>
+              Don’t fill this out: <input name="bot-field" />
+            </label>
+          </p>
+          <p>
+          <input type="hidden" name="form-name" value="name" />
+          </p>
           <p>
             <label>Name <input type="text" name="name" /></label>
           </p>
