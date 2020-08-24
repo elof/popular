@@ -20,7 +20,7 @@ const ApplyPage = ({
           <p>Inspire others &rarr;</p>
         </div>
         <div>
-        <form name="Application" className="form-container" netlify>
+        <form name="Application" className="form-container" data-netlify="true">
           <p>
             <label>Name <input type="text" name="name" /></label>
           </p>
