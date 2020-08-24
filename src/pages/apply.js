@@ -28,7 +28,7 @@ const ApplyPage = ({
             </label>
           </p>
           <p>
-          <input type="hidden" name="form-name" value="name" />
+          <input type="hidden" name="form-name" value="Application" />
           </p>
           <p>
             <label>Name <input type="text" name="name" /></label>
