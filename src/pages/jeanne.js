@@ -23,7 +23,7 @@ const JeannePage = ({
         <meta name="description" content={site.siteMetadata.description} />
       </Helmet>
       <div className="author">
-      <img className="author-profile-image" src="/assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg" alt="Profile Photo"></img>
+      <img className="author-profile-image" src="/assets/jeanne.jpg" alt="Profile Photo"></img>
         <div className="author-introduction">
           <h2>Jeanne</h2>
           <p>
