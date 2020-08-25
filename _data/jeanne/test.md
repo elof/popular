@@ -12,20 +12,36 @@ Hi! Glad you found us. You are probably here because you have found yourself at 
 
 ![](/assets/daniel-lincoln-HlEu2OvHtI0-unsplash.jpg)
 
-**Paint and Paint Tools**
+## **Paint and Paint Tools**
 
-**Drawing and Coloring**
+![]()
 
-**Manipulative**
+## **Drawing and Coloring**
 
-**Glue, Tape, and Adhesives**
+![]()
 
-**Paper**
+## **Manipulative**
 
-**Printmaking**
+![]()
 
-**Arts and Crafts**
+## **Glue, Tape, and Adhesives**
 
-**Art Storage**
+![]()
 
-**Toys and Games**
+## **Paper**
+
+![]()
+
+## **Printmaking**
+
+![]()
+
+## **Arts and Crafts**
+
+![]()
+
+## **Art Storage**
+
+![]()
+
+## **Toys and Games**
