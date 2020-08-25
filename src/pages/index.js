@@ -34,7 +34,7 @@ const IndexPage = ({
         </p>
         <br></br>
         <p>
-        <Link to='/contact' className="button -primary">Apply to be an author &rarr;</Link>
+        <Link to='/apply' className="button -primary">Apply to be an author &rarr;</Link>
         </p>
       </div>
       {/*  <h3>Blog Posts &darr;</h3>

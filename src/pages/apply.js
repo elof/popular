@@ -21,9 +21,12 @@ const ApplyPage = ({
           <p>Inspire others &rarr;</p>
         </div>
         <div>
-        <form name="Application" method="post" className="form-container" data-netlify="true" >
+        <form name="Application" method="post" className="form-container" netlify-honeypot="bot-field" data-netlify="true" >
           <p>
-          <input type="hidden" name="form-name" value="Application" />
+            <input type="hidden" name="form-name" value="Application" />
+          </p>
+          <p class="hidden">
+            <input type="hidden" name="bot-field" />
           </p>
           <p>
             <label>Name <input type="text" name="name" /></label>

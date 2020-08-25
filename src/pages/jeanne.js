@@ -29,6 +29,9 @@ const JeannePage = ({
           <p>
             This is my profile and I have some words
           </p>
+          <p>
+            Send tips to: @jeanneluong on Venmo
+          </p>
         </div>
       </div>
       <h2>Posts &darr;</h2>
