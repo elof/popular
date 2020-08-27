@@ -28,6 +28,8 @@ I have organized the items in this list in common art supplies categories for ea
 
    Arteza 5.5x8.5” Mixed Media Sketch Book
 
+   Crayola Cardstock Paper, Colored Cardstock
+
 ### Paint and Paint supplies
 
 Crayola(R Premier Tempera Paint
@@ -50,17 +52,29 @@ Synthetic Sponges for Painting & Crafts
 
 OOLY, Oil Pastel Twisty Stix
 
+
+
 Acrylic Paint Marker Pens
+
+Texture Rubbing Plates
+
+
+
+Crayola Take Note Colored Permanent Marker Set
 
 ### Manipulatives
 
 Sculpey Classic Collection III Multipack
 
+Gillette Foamy Regular Shaving Foam
+
+Water Beads
+
 ### Glue, adhesives, and tape
 
 Elmer's Products, Inc E3860 Multi-Purpose Glue-All
 
-
+Aleene's Original "Tacky" Glue
 
 ### Arts and crafts
 
@@ -79,6 +93,16 @@ Plastic Clear Capsules
 Hygloss Products Foam Trays
 
 Puffy Stickers
+
+Plastic Squeeze Bottles
+
+Flexible Mirror Sheets
+
+Embroidery Hoops
+
+Plastic Yarn Sewing Needle Set
+
+
 
 ### Art storage
 
