@@ -50,7 +50,9 @@ Synthetic Sponges for Painting & Crafts
 
 AmazonBasics Multipurpose Copy Printer
 
+Crayola Kids Paint Brushes, 4 Count
 
+Crayola Washable Kids Paint
 
 
 
@@ -65,6 +67,10 @@ Texture Rubbing Plates
 Crayola Take Note Colored Permanent Marker Set
 
 Derwent Colored Pencils
+
+Kwik Stix Solid Tempera Paint
+
+Do A Dot Art! Markers
 
 ### Manipulatives
 
@@ -118,6 +124,8 @@ Tulip Puffy 3-D Fashion Paint
 
 Craft Rolls
 
+Melissa & Doug Rainbow Stamp Pad
+
 ### Art storage
 
 Learning Resources Create-a-Space Storage Center, Homeschool Storage, Fits 3oz Hand Sanitizer B
@@ -150,6 +158,10 @@ LEGO DOTS Rainbow Jewelry Stand
 
 LED Light Box for Tracing
 
+Melissa & Doug Water Wow
+
 Constructive Playthings Toys Translucent Pattern Blocks
+
+Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
 
 WOWMAZING Giant Bubble Refill Powder Mix
