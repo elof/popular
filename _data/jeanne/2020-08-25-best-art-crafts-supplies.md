@@ -54,7 +54,9 @@ Crayola Kids Paint Brushes, 4 Count
 
 Crayola Washable Kids Paint
 
+Melissa & Doug Spill Proof Paint Cups
 
+Melissa & Doug Large Paint Brush Set
 
 ### Drawing and Coloring
 
@@ -69,6 +71,8 @@ Crayola Take Note Colored Permanent Marker Set
 Derwent Colored Pencils
 
 Kwik Stix Solid Tempera Paint
+
+Crayola Ultra-Clean Washable Markers
 
 Do A Dot Art! Markers
 
@@ -87,6 +91,8 @@ Learning Resources Helping Hands Fine Motor Tool Set Toy
 Elmer's Products, Inc E3860 Multi-Purpose Glue-All
 
 Aleene's Original "Tacky" Glue
+
+Washi Tape, 4 Rolls Decorative Tape
 
 8 Roll 1-Inch Wide Tape Stand
 
@@ -125,6 +131,16 @@ Tulip Puffy 3-D Fashion Paint
 Craft Rolls
 
 Melissa & Doug Rainbow Stamp Pad
+
+Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
+
+Melissa & Doug Stencil Art Coloring Activity Kit
+
+Craft Holes Punch 1 Inch Paper Punchers
+
+
+
+
 
 ### Art storage
 
