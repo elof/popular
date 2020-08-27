@@ -12,6 +12,14 @@ Hi! Glad you found us. You are probably here because you have found yourself at 
 
 With that said, let’s get started, shall we?
 
-![Best Art Supplies](/assets/daniel-lincoln-HlEu2OvHtI0-unsplash.jpg "Best Arts Supplies")
+![](/assets/daniel-lincoln-HlEu2OvHtI0-unsplash.jpg)
 
-Lorem ipsum dolor, sit amet consectetur adipisicing
+I have organized the items in this list in common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. 
+
+Paper
+
+Paint and Paint supplies
+
+Manipulatives
+
+Glue, adhesives, and tape
