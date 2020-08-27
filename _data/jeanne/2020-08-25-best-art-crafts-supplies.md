@@ -23,3 +23,9 @@ Paint and Paint supplies
 Manipulatives
 
 Glue, adhesives, and tape
+
+Arts and crafts
+
+Art storage
+
+Toys, games, and miscellaneous
