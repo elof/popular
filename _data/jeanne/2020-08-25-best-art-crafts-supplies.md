@@ -24,6 +24,10 @@ I have organized the items in this list in common art supplies categories for ea
 
    Melissa & Doug Easel Paper Rolls
 
+   Canson (100510941) XL Series Watercolor Pad, 9" x 12", Fold-Over Cover
+
+   Arteza 5.5x8.5” Mixed Media Sketch Book
+
 ### Paint and Paint supplies
 
 Crayola(R Premier Tempera Paint
@@ -34,11 +38,29 @@ Melissa & Doug Deluxe Wooden Standing Art Easel
 
 Kids Art Smocks
 
+ARTEZA Kids Premium Watercolor Paint Set
 
+Falling in Art Rubber Roller Brayer
+
+Sax True Flow Water Soluble Block Printing Ink
+
+Synthetic Sponges for Painting & Crafts
+
+### Drawing and Coloring
+
+OOLY, Oil Pastel Twisty Stix
+
+Acrylic Paint Marker Pens
 
 ### Manipulatives
 
+Sculpey Classic Collection III Multipack
+
 ### Glue, adhesives, and tape
+
+Elmer's Products, Inc E3860 Multi-Purpose Glue-All
+
+
 
 ### Arts and crafts
 
@@ -48,7 +70,15 @@ Con-Tact Brand Shelf Liner
 
 Melissa & Doug Reusable Sticker Pad
 
+CuteyCo Crafty Sand
 
+Thin Plastic Transfer Pipettes
+
+Plastic Clear Capsules
+
+Hygloss Products Foam Trays
+
+Puffy Stickers
 
 ### Art storage
 
@@ -75,3 +105,9 @@ Mudpuppy Panther Chameleon Mini Puzzle
 Mudpuppy Tyrannosaurus Rex Mini Puzzle
 
 Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
+
+LEGO DOTS Rainbow Jewelry Stand
+
+LED Light Box for Tracing
+
+Constructive Playthings Toys Translucent Pattern Blocks
