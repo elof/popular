@@ -20,9 +20,21 @@ I have organized the items in this list in common art supplies categories for ea
 
 ### Paper
 
-1. Bright Construction Paper Smart Pack Multicolor Variety Pack
+1. Bright Construction Paper Smart Pack Multicolor Variety Pack- Heavy and vibrant paper
+
+   Melissa & Doug Easel Paper Rolls
 
 ### Paint and Paint supplies
+
+Crayola(R Premier Tempera Paint
+
+Crayola Paint Set in Earth Tone Craft Acrylic Paints
+
+Melissa & Doug Deluxe Wooden Standing Art Easel
+
+Kids Art Smocks
+
+
 
 ### Manipulatives
 
@@ -31,6 +43,12 @@ I have organized the items in this list in common art supplies categories for ea
 ### Arts and crafts
 
 Colorful Glitter Foam Stickers
+
+Con-Tact Brand Shelf Liner
+
+Melissa & Doug Reusable Sticker Pad
+
+
 
 ### Art storage
 
@@ -55,3 +73,5 @@ Mudpuppy Rainbow Lion Shaped Mini Puzzle
 Mudpuppy Panther Chameleon Mini Puzzle
 
 Mudpuppy Tyrannosaurus Rex Mini Puzzle
+
+Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
