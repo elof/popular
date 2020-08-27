@@ -20,7 +20,7 @@ I have organized the items in this list in common art supplies categories for ea
 
 ### Paper
 
-1)
+1. Bright Construction Paper Smart Pack Multicolor Variety Pack
 
 ### Paint and Paint supplies
 
@@ -42,8 +42,16 @@ Interlocking bin Customizable Multi-Purpose Storage
 
 12 Pack - SimpleHouseware Magazine File Holder Organizer Box
 
-
-
-
-
 ### Toys, games, and miscellaneous
+
+Guidecraft Jr. Rainbow Blocks
+
+Mudpuppy Fire Truck Shaped Mini Puzzle
+
+Square Panda Multisensory Phonics Playset
+
+Mudpuppy Rainbow Lion Shaped Mini Puzzle
+
+Mudpuppy Panther Chameleon Mini Puzzle
+
+Mudpuppy Tyrannosaurus Rex Mini Puzzle
