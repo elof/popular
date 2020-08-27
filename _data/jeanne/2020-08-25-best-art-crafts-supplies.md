@@ -48,19 +48,23 @@ Sax True Flow Water Soluble Block Printing Ink
 
 Synthetic Sponges for Painting & Crafts
 
+AmazonBasics Multipurpose Copy Printer
+
+
+
+
+
 ### Drawing and Coloring
 
 OOLY, Oil Pastel Twisty Stix
-
-
 
 Acrylic Paint Marker Pens
 
 Texture Rubbing Plates
 
-
-
 Crayola Take Note Colored Permanent Marker Set
+
+Derwent Colored Pencils
 
 ### Manipulatives
 
@@ -70,11 +74,15 @@ Gillette Foamy Regular Shaving Foam
 
 Water Beads
 
+Learning Resources Helping Hands Fine Motor Tool Set Toy
+
 ### Glue, adhesives, and tape
 
 Elmer's Products, Inc E3860 Multi-Purpose Glue-All
 
 Aleene's Original "Tacky" Glue
+
+8 Roll 1-Inch Wide Tape Stand
 
 ### Arts and crafts
 
@@ -102,7 +110,13 @@ Embroidery Hoops
 
 Plastic Yarn Sewing Needle Set
 
+Paper Jumbo Smoothie Straws
 
+Pony Beads
+
+Tulip Puffy 3-D Fashion Paint
+
+Craft Rolls
 
 ### Art storage
 
@@ -113,6 +127,8 @@ Honey-Can-Do Rolling Storage Cart and Organizer
 Interlocking bin Customizable Multi-Purpose Storage
 
 12 Pack - SimpleHouseware Magazine File Holder Organizer Box
+
+3 Drawer Wood Pastel Storage Box
 
 ### Toys, games, and miscellaneous
 
@@ -135,3 +151,5 @@ LEGO DOTS Rainbow Jewelry Stand
 LED Light Box for Tracing
 
 Constructive Playthings Toys Translucent Pattern Blocks
+
+WOWMAZING Giant Bubble Refill Powder Mix
