@@ -51,9 +51,11 @@ I have organized the items in this list into common art supplies categories for 
 3. **Rubbing Plates**: Use these [Texture Rubbing Plates](https://amzn.to/2EtN8jZ) to make your own pattern paper. Each plate comes with two halves that are different motifs so you really get a lot of variation. 
 4. **Permanent Markers**: I’m sure every parent would say, “are your crazy?” about me saying that you should get these for a kid’s art supplies. Of course, let them use it only with adult supervision. We got these [Crayola Take Note Colored Permanent Marker Set](https://amzn.to/34B76UI) and they work great on a variety of surfaces, e.g. if you want to upcycle that milk jug into some window suncatchers. And they cost a few bucks less than Sharpies. Win win. 
 5. **Colored Pencils**: These [Derwent Colored Pencils](https://amzn.to/32sfnYh) are our favorite because the colors are bright and they are water soluble so you can use water to blend colors. I love double duty art materials. 
-6. **Tempura Paint Sticks**: We first encountered these Kwik Stix Solid Tempera Paint Sticks at a little buddy’s house and I feel in love with the thick and rich colors. Also, they’re low mess and dry so quickly. 
-7. **Washable Markers**: They had me at washable. Also, Crayola simply makes the best markeSri. These Crayola Ultra-Clean Washable Markers really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
+6. **Tempura Paint Sticks**: We first encountered these [Kwik Stix Solid Tempera Paint Sticks](https://amzn.to/3loVmua) at a little buddy’s house and I fell in love with the thick and rich colors. Also, they’re low mess and dry so quickly. 
+7. **Washable Markers**: They had me at washable. Also, Crayola simply makes the best markeSri. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
 8. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
+
+
 
 ### Manipulatives
 
