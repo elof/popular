@@ -66,10 +66,10 @@ I have organized the items in this list into common art supplies categories for 
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
-1. Elmer's Products, Inc E3860 Multi-Purpose Glue-All
-2. Aleene's Original "Tacky" Glue
-3. Washi Tape, 4 Rolls Decorative Tape
-4. 8 Roll 1-Inch Wide Tape Stand
+1. [Elmer's Multi-Purpose Glue-All](https://amzn.to/2YBS0ue)
+2. [Aleene's Tacky Glue](https://amzn.to/32sev5X)
+3. **Washi Tape**: [Washi Tape](https://amzn.to/3lzVPtU)
+4. **Tape Stand** [8 Roll 1-inch Tape Holder ](https://amzn.to/34zwkCH)
 
 ### Arts and crafts
 
