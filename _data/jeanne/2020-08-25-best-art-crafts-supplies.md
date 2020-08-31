@@ -108,10 +108,10 @@ I have organized the items in this list into common art supplies categories for 
 1. Guidecraft Jr. Rainbow Blocks
 2. Melissa & Doug Reusable Sticker Pad
 3. Mudpuppy Fire Truck Shaped Mini Puzzle
-4. Square Panda Multisensory Phonics Playset
-5. Mudpuppy Rainbow Lion Shaped Mini Puzzle
-6. Mudpuppy Panther Chameleon Mini Puzzle
-7. Mudpuppy Tyrannosaurus Rex Mini Puzzle
+4. Mudpuppy Rainbow Lion Shaped Mini Puzzle
+5. Mudpuppy Panther Chameleon Mini Puzzle
+6. Mudpuppy Tyrannosaurus Rex Mini Puzzle
+7. Square Panda Multisensory Phonics Playset
 8. [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A)
 9. [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia)
 10. [LED Light Box for Tracing](https://amzn.to/2YEH6E9)
