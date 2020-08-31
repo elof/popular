@@ -54,6 +54,8 @@ I have organized the items in this list into common art supplies categories for 
 6. **Tempura Paint Sticks**: We first encountered these [Kwik Stix Solid Tempera Paint Sticks](https://amzn.to/3loVmua) at a little buddy’s house and I fell in love with the thick and rich colors. Also, they’re low mess and dry so quickly. 
 7. **Washable Markers**: They had me at washable. Also, Crayola simply makes the best markeSri. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
 8. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
+9. Sidewalk Chalk: [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F)
+10. Crayons: [Ooly Easy to Hold Crayon ](https://amzn.to/2D5VTA1)
 
 ![]()
 
@@ -99,6 +101,7 @@ I have organized the items in this list into common art supplies categories for 
 2. [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
 3. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
 4. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
+5. [3 Drawer Wood Pastel Storage Box](https://amzn.to/2YDN3Bc)
 
 ### Toys, games, and miscellaneous
 
@@ -109,10 +112,10 @@ I have organized the items in this list into common art supplies categories for 
 5. Mudpuppy Rainbow Lion Shaped Mini Puzzle
 6. Mudpuppy Panther Chameleon Mini Puzzle
 7. Mudpuppy Tyrannosaurus Rex Mini Puzzle
-8. Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
-9. LEGO DOTS Rainbow Jewelry Stand
-10. LED Light Box for Tracing
-11. Constructive Playthings Toys Translucent Pattern Blocks
+8. [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A)
+9. [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia)
+10. [LED Light Box for Tracing](https://amzn.to/2YEH6E9)
+11. [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR)
 12. [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1)
-13. Made By Me Create Your Own Window Art  Paint Your Own Suncatchers
+13. [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd)  Paint Your Own Suncatchers
 14. [WOWMAZING Giant Bubble Refill Powder Mix](https://amzn.to/34zG2oC)
