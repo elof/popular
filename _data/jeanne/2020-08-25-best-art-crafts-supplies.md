@@ -28,109 +28,67 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Paint and Paint supplies
 
-1. Tempura Paint: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get the squeeze bottles to refill the little containers of paint on kid’s easel.
-2. Acrylic Paint: We like this Crayola Acrylic Paint Set for when we need paint that is permanent. There are diffrent sets that come in such rich and pretty tones. 
+1. **Tempura Paint**: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get the squeeze bottles to refill the little containers of paint on kid’s easel.
+2. **Acrylic Paint**: We like this Crayola Acrylic Paint Set for when we need paint that is permanent. There are diffrent sets that come in such rich and pretty tones. 
 3. Melissa & Doug Deluxe Wooden Standing Art Easel
-
-Kids Art Smocks
-
-ARTEZA Kids Premium Watercolor Paint Set
-
-Falling in Art Rubber Roller Brayer
-
-Sax True Flow Water Soluble Block Printing Ink
-
-Synthetic Sponges for Painting & Crafts
-
-AmazonBasics Multipurpose Copy Printer
-
-Crayola Kids Paint Brushes, 4 Count
-
-Crayola Washable Kids Paint
-
-Melissa & Doug Spill Proof Paint Cups
-
-Melissa & Doug Large Paint Brush Set
+4. **Kids Art Smocks**
+5. ARTEZA Kids Premium Watercolor Paint Set
+6. Falling in Art Rubber Roller Brayer
+7. Sax True Flow Water Soluble Block Printing Ink
+8. Synthetic Sponges for Painting & Crafts
+9. AmazonBasics Multipurpose Copy Printer
+10. Crayola Kids Paint Brushes, 4 Count
+11. Crayola Washable Kids Paint
+12. Melissa & Doug Spill Proof Paint Cups
+13. Melissa & Doug Large Paint Brush Set
 
 ### Drawing and Coloring
 
-OOLY, Oil Pastel Twisty Stix
-
-Acrylic Paint Marker Pens
-
-Texture Rubbing Plates
-
-Crayola Take Note Colored Permanent Marker Set
-
-Derwent Colored Pencils
-
-Kwik Stix Solid Tempera Paint
-
-Crayola Ultra-Clean Washable Markers
-
-Do A Dot Art! Markers
+1. OOLY, Oil Pastel Twisty Stix
+2. Acrylic Paint Marker Pens
+3. Texture Rubbing Plates
+4. Crayola Take Note Colored Permanent Marker Set
+5. Derwent Colored Pencils
+6. Kwik Stix Solid Tempera Paint
+7. Crayola Ultra-Clean Washable Markers
+8. Do A Dot Art! Markers
 
 ### Manipulatives
 
-Sculpey Classic Collection III Multipack
-
-Gillette Foamy Regular Shaving Foam
-
-Water Beads
-
-Learning Resources Helping Hands Fine Motor Tool Set Toy
+1. Sculpey Classic Collection III Multipack
+2. Gillette Foamy Regular Shaving Foam
+3. Water Beads
+4. Learning Resources Helping Hands Fine Motor Tool Set Toy
 
 ### Glue, adhesives, and tape
 
-Elmer's Products, Inc E3860 Multi-Purpose Glue-All
-
-Aleene's Original "Tacky" Glue
-
-Washi Tape, 4 Rolls Decorative Tape
-
-8 Roll 1-Inch Wide Tape Stand
+1. Elmer's Products, Inc E3860 Multi-Purpose Glue-All
+2. Aleene's Original "Tacky" Glue
+3. Washi Tape, 4 Rolls Decorative Tape
+4. 8 Roll 1-Inch Wide Tape Stand
 
 ### Arts and crafts
 
-Colorful Glitter Foam Stickers
-
-Con-Tact Brand Shelf Liner
-
-Melissa & Doug Reusable Sticker Pad
-
-CuteyCo Crafty Sand
-
-Thin Plastic Transfer Pipettes
-
-Plastic Clear Capsules
-
-Hygloss Products Foam Trays
-
-Puffy Stickers
-
-Plastic Squeeze Bottles
-
-Flexible Mirror Sheets
-
-Embroidery Hoops
-
-Plastic Yarn Sewing Needle Set
-
-Paper Jumbo Smoothie Straws
-
-Pony Beads
-
-Tulip Puffy 3-D Fashion Paint
-
-Craft Rolls
-
-Melissa & Doug Rainbow Stamp Pad
-
-Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
-
-Melissa & Doug Stencil Art Coloring Activity Kit
-
-Craft Holes Punch 1 Inch Paper Punchers
+1. Colorful Glitter Foam Stickers
+2. Con-Tact Brand Shelf Liner
+3. Melissa & Doug Reusable Sticker Pad
+4. CuteyCo Crafty Sand
+5. Thin Plastic Transfer Pipettes
+6. Plastic Clear Capsules
+7. Hygloss Products Foam Trays
+8. Puffy Stickers
+9. Plastic Squeeze Bottles
+10. Flexible Mirror Sheets
+11. Embroidery Hoops
+12. Plastic Yarn Sewing Needle Set
+13. Paper Jumbo Smoothie Straws
+14. Pony Beads
+15. Tulip Puffy 3-D Fashion Paint
+16. Craft Rolls
+17. Melissa & Doug Rainbow Stamp Pad
+18. Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
+19. Melissa & Doug Stencil Art Coloring Activity Kit
+20. Craft Holes Punch 1 Inch Paper Punchers
 
 ### Art storage
 
