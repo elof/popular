@@ -21,14 +21,10 @@ I have organized the items in this list in common art supplies categories for ea
 ### Paper
 
 1. Bright Construction Paper Smart Pack Multicolor Variety Pack- Heavy and vibrant paper
-
-   Melissa & Doug Easel Paper Rolls
-
-   Canson (100510941) XL Series Watercolor Pad, 9" x 12", Fold-Over Cover
-
-   Arteza 5.5x8.5” Mixed Media Sketch Book
-
-   Crayola Cardstock Paper, Colored Cardstock
+2. **Easel Paper Rolls**: We got this Melissa & Doug easel paper rollsinitally as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brandS because it’s heavy duty and can withstand layers and layers of paint. 
+3. Canson (100510941) XL Series Watercolor Pad, 9" x 12", Fold-Over Cover
+4. Arteza 5.5x8.5” Mixed Media Sketch Book
+5. Crayola Cardstock Paper, Colored Cardstock
 
 ### Paint and Paint supplies
 
@@ -137,10 +133,6 @@ Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch
 Melissa & Doug Stencil Art Coloring Activity Kit
 
 Craft Holes Punch 1 Inch Paper Punchers
-
-
-
-
 
 ### Art storage
 
