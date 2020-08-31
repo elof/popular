@@ -18,7 +18,7 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Paper
 
-1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much. 
+1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other basic colored construction paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much. 
 2. **Easel Paper Rolls**: We got there [Melissa & Doug Easel Paper Rolls ](https://amzn.to/2Qt0yiw)initially as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brands because it’s heavy duty and can withstand layers and layers of paint. 
 3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to wash after wash of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
 4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
@@ -46,8 +46,8 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Drawing and Coloring
 
-1. **Oil Pastel Coloring Sticks**: OOLY, Oil Pastel Twisty Stix
-2. **Acrylic Paint Marker Pens**: 
+1. **Oil Pastels**: I love oil pastels. Oil Pastel Twisty Stix
+2. **Acrylic Pens :** Acrylic Paint Marker Pens: 
 3. **Texture Rubbing Plates**:
 4. **Permanent Markers**: Crayola Take Note Colored Permanent Marker Set
 5. **Colored Pencils**: Derwent Colored Pencils
