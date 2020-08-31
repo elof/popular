@@ -23,7 +23,7 @@ I have organized the items in this list into common art supplies categories for 
 3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to take lots of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
 4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
 5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
-6. White Paper: 
+6. **White Paper**: We use good old printer paper for everyday doodles. This ream of AmazonBasics Multipurpose Copy Printer Paper does a decent job. It’s medium weight, bright, and a good value. I don’t know about you but my kid goes through so much white paper.
 
 ![]()
 
