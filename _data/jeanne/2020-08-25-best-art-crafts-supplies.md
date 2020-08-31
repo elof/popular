@@ -32,9 +32,9 @@ I have organized the items in this list into common art supplies categories for 
 1. **Tempura Paint**: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get the squeeze bottles to refill the little containers of paint on kid’s easel.
 2. **Acrylic Paint**: We like this Crayola Acrylic Paint Set for when we need paint that is permanent. There are diffrent sets that come in such rich and pretty tones. 
 3. **Easel**: All kids need an easel. This is by far one of the art things that gets the most mileage. Kid’s grandma got her this Melissa & Doug Deluxe Wooden Standing Art Easel at 18 months old and a few years later we’re still going strong with creating amazing paintings with it. I like it for it’s compartments for painting supplies, white board, chalkboard with tray for chalk, and it’s sturdiness. 
-4. **Kids Art Smocks**: Messy art is fun but sometimes you want to keep the paint off those cute little outfits that kids wear. These art smocks used to double as meal time smocks/bibs when my kid was little. Multiuse!
-5. ARTEZA Kids Premium Watercolor Paint Set
-6. Falling in Art Rubber Roller Brayer
+4. **Kids Art Smocks**: Messy art is fun but sometimes you want to keep the paint off those cute little outfits that kids wear. These art smocks used to double as meal time smocks/bibs when my kid was little. They’re easy to clean.
+5. Watercolor Paints: Of course as a watercolorist I absolutely had to get my kid a good watercolor set. This ARTEZA Kids Premium Watercolor Paint Set is so good. The paints viscosity of paint is wonderful and the colors are amazingly vibrant. I know there are cheaper sets but I absolutely recommend getting higher quality paints for kids. Results are much prettier.
+6. Paint Roller: This definitely falls into the category of miscellaneous and not necessary for a basic art kit but we did a printmaking activity once with this Falling in Art Rubber Roller Brayer and I was impressed at how well it held up to my kid’s rough handling. Super solid and easy for little hands to roll. 
 7. Sax True Flow Water Soluble Block Printing Ink
 8. Synthetic Sponges for Painting & Crafts
 9. AmazonBasics Multipurpose Copy Printer
