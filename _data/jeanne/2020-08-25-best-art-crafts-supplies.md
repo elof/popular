@@ -20,7 +20,7 @@ I have organized the items in this list into common art supplies categories for 
 
 1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much. 
 2. **Easel Paper Rolls**: We got there [Melissa & Doug Easel Paper Rolls ](https://amzn.to/2Qt0yiw)initially as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brands because it’s heavy duty and can withstand layers and layers of paint. 
-3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. I prefer these over kid specific watercolor paper because it’s heavy enough to take lots of paint and just an overall good quality student grade paper with a textured surface. I use it myself. 
+3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to take lots of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
 4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
 5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
 
@@ -28,7 +28,7 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Paint and Paint supplies
 
-1. Crayola(R Premier Tempera Paint
+1. Tempura Paint: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get 
 
 Crayola Paint Set in Earth Tone Craft Acrylic Paints
 
