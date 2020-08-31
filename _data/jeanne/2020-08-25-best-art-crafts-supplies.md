@@ -95,11 +95,10 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Art storage
 
-1. Learning Resources Create-a-Space Storage Center, Homeschool Storage, Fits 3oz Hand Sanitizer B
-2. Honey-Can-Do Rolling Storage Cart and Organizer
-3. Interlocking bin Customizable Multi-Purpose Storage
-4. 12 Pack - SimpleHouseware Magazine File Holder Organizer Box
-5. 3 Drawer Wood Pastel Storage Box
+1. [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)
+2. [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
+3. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
+4. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
 
 ### Toys, games, and miscellaneous
 
