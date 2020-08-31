@@ -1,6 +1,6 @@
 ---
 template: BlogPost
-path: /jeanne/best-art-crafts-supplies
+path: /jeanne/best-art-crafts-supplies-part1
 date: 2020-08-25T06:08:00.000Z
 title: 'The Best Arts & Crafts Supplies for Toddlers to School Age Kids, Part 1'
 metaDescription: ''
