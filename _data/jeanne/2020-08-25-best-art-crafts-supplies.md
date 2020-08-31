@@ -23,6 +23,7 @@ I have organized the items in this list into common art supplies categories for 
 3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to take lots of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
 4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
 5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
+6. White Paper: 
 
 ![]()
 
@@ -92,40 +93,24 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Art storage
 
-Learning Resources Create-a-Space Storage Center, Homeschool Storage, Fits 3oz Hand Sanitizer B
-
-Honey-Can-Do Rolling Storage Cart and Organizer
-
-Interlocking bin Customizable Multi-Purpose Storage
-
-12 Pack - SimpleHouseware Magazine File Holder Organizer Box
-
-3 Drawer Wood Pastel Storage Box
+1. Learning Resources Create-a-Space Storage Center, Homeschool Storage, Fits 3oz Hand Sanitizer B
+2. Honey-Can-Do Rolling Storage Cart and Organizer
+3. Interlocking bin Customizable Multi-Purpose Storage
+4. 12 Pack - SimpleHouseware Magazine File Holder Organizer Box
+5. 3 Drawer Wood Pastel Storage Box
 
 ### Toys, games, and miscellaneous
 
-Guidecraft Jr. Rainbow Blocks
-
-Mudpuppy Fire Truck Shaped Mini Puzzle
-
-Square Panda Multisensory Phonics Playset
-
-Mudpuppy Rainbow Lion Shaped Mini Puzzle
-
-Mudpuppy Panther Chameleon Mini Puzzle
-
-Mudpuppy Tyrannosaurus Rex Mini Puzzle
-
-Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
-
-LEGO DOTS Rainbow Jewelry Stand
-
-LED Light Box for Tracing
-
-Melissa & Doug Water Wow
-
-Constructive Playthings Toys Translucent Pattern Blocks
-
-Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
-
-WOWMAZING Giant Bubble Refill Powder Mix
+1. Guidecraft Jr. Rainbow Blocks
+2. Mudpuppy Fire Truck Shaped Mini Puzzle
+3. Square Panda Multisensory Phonics Playset
+4. Mudpuppy Rainbow Lion Shaped Mini Puzzle
+5. Mudpuppy Panther Chameleon Mini Puzzle
+6. Mudpuppy Tyrannosaurus Rex Mini Puzzle
+7. Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
+8. LEGO DOTS Rainbow Jewelry Stand
+9. LED Light Box for Tracing
+10. Constructive Playthings Toys Translucent Pattern Blocks
+11. Melissa & Doug Water Wow
+12. Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
+13. WOWMAZING Giant Bubble Refill Powder Mix
