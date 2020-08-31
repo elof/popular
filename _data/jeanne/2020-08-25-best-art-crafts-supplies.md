@@ -55,16 +55,16 @@ I have organized the items in this list into common art supplies categories for 
 7. **Washable Markers**: They had me at washable. Also, Crayola simply makes the best markeSri. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
 8. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
 
-
+![]()
 
 ### Manipulatives
 
-1. Sculpey Classic Collection III Multipack
-2. Gillette Foamy Regular Shaving Foam
-3. Water Beads
-4. Learning Resources Helping Hands Fine Motor Tool Set Toy
+1. [Sculpey Classic Multipack](https://amzn.to/2EHoPi4)
+2. [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s)
+3. [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ)
+4. [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ)
 
-### Glue, adhesives, and tape
+### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
 1. Elmer's Products, Inc E3860 Multi-Purpose Glue-All
 2. Aleene's Original "Tacky" Glue
