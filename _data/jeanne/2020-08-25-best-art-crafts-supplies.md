@@ -82,16 +82,16 @@ I have organized the items in this list into common art supplies categories for 
 7. [Puffy Stickers](https://amzn.to/2EtphRw)
 8. [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8)
 9. [Flexible Mirror Sheets](https://amzn.to/3gwQ0JV)
-10. Embroidery Hoops
-11. Plastic Yarn Sewing Needle Set
-12. Paper Jumbo Smoothie Straws
+10. [Embroidery Hoops](https://amzn.to/3gskpJb)
+11. [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp)
+12. [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j)
 13. [Pony Beads](https://amzn.to/2Qrwkwj)
-14. Tulip Puffy 3-D Fashion Paint
-15. Craft Rolls
-16. Melissa & Doug Rainbow Stamp Pad
-17. Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
-18. Melissa & Doug Stencil Art Coloring Activity Kit
-19. Craft Holes Punch 1 Inch Paper Punchers
+14. [Tulip Puffy 3-D Fashion Paint](https://amzn.to/3hAvqtA)
+15. [Craft Rolls](https://amzn.to/3jlDUFp)
+16. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
+17. [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o)
+18. [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr)
+19. **Paper Punchers**: [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz)
 
 ### Art storage
 
@@ -114,6 +114,6 @@ I have organized the items in this list into common art supplies categories for 
 9. LEGO DOTS Rainbow Jewelry Stand
 10. LED Light Box for Tracing
 11. Constructive Playthings Toys Translucent Pattern Blocks
-12. Melissa & Doug Water Wow
-13. Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
-14. WOWMAZING Giant Bubble Refill Powder Mix
+12. [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1)
+13. Made By Me Create Your Own Window Art  Paint Your Own Suncatchers
+14. [WOWMAZING Giant Bubble Refill Powder Mix](https://amzn.to/34zG2oC)
