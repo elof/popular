@@ -35,13 +35,12 @@ I have organized the items in this list into common art supplies categories for 
 4. **Kids Art Smocks**: Messy art is fun but sometimes you want to keep the paint off those cute little outfits that kids wear. These art smocks used to double as meal time smocks/bibs when my kid was little. They’re easy to clean.
 5. Watercolor Paints: Of course as a watercolorist I absolutely had to get my kid a good watercolor set. This ARTEZA Kids Premium Watercolor Paint Set is so good. The paints viscosity of paint is wonderful and the colors are amazingly vibrant. I know there are cheaper sets but I absolutely recommend getting higher quality paints for kids. Results are much prettier.
 6. Paint Roller: This definitely falls into the category of miscellaneous and not necessary for a basic art kit but we did a printmaking activity once with this Falling in Art Rubber Roller Brayer and I was impressed at how well it held up to my kid’s rough handling. Super solid and easy for little hands to roll. 
-7. Sax True Flow Water Soluble Block Printing Ink
+7. Block Printing Paint- Again, this Sax True Flow Water Soluble Block Printing Ink is an unnecessary art supply but if you’re looking for this type of paint we like this brand for its smooth application and quick drying time.
 8. Synthetic Sponges for Painting & Crafts
-9. AmazonBasics Multipurpose Copy Printer
-10. Crayola Kids Paint Brushes, 4 Count
-11. Crayola Washable Kids Paint
-12. Melissa & Doug Spill Proof Paint Cups
-13. Melissa & Doug Large Paint Brush Set
+9. Crayola Kids Paint Brushes, 4 Count
+10. Crayola Washable Kids Paint
+11. Melissa & Doug Spill Proof Paint Cups
+12. Melissa & Doug Large Paint Brush Set
 
 ### Drawing and Coloring
 
