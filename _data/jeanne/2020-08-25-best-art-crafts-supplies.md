@@ -8,21 +8,21 @@ thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
 ---
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
-We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. Included in the mix is some non-essential supplies, toys, and games but since it’s pandemic life there’s so much time to do fun things, so I thought why not if. With that said, let’s get started, shall we?
+We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. Included in the mix is some non-essential supplies, toys, and games but since it’s pandemic life there’s so much time to do fun things, so I thought why not. With that said, let’s get started, shall we?
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
 ![](/assets/daniel-lincoln-HlEu2OvHtI0-unsplash.jpg)
 
-I have organized the items in this list in common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. 
+I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. 
 
 ### Paper
 
-1. Bright Construction Paper Smart Pack Multicolor Variety Pack- Heavy and vibrant paper
+1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much. 
 2. **Easel Paper Rolls**: We got there [Melissa & Doug Easel Paper Rolls ](https://amzn.to/2Qt0yiw)initially as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brands because it’s heavy duty and can withstand layers and layers of paint. 
-3. Canson (100510941) XL Series Watercolor Pad, 9" x 12", Fold-Over Cover
-4. Arteza 5.5x8.5” Mixed Media Sketch Book
-5. Crayola Cardstock Paper, Colored Cardstock
+3. Watercolor Paper: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. I prefer these over kid specific watercolor paper because it’s heavy enough to take lots of paint and just an overall good quality student grade paper with a textured surface. I use it myself. 
+4. Mixed Media paper: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
+5. Color Cardstock: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
 
 ### Paint and Paint supplies
 
