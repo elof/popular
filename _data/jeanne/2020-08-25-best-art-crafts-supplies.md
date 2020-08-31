@@ -46,7 +46,7 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Drawing and Coloring
 
-1. **Oil Pastels**: I love oil pastels. Oil Pastel Twisty Stix
+1. **Oil Pastels**: I love oil pastels. The creamy texture on a paper and the way you can smudge it to change the marking. It’s such a versatile art medium. Anyway, my kid has these Oil Pastel Twisty Stix. They’re the best. Since they’re twist up you can store them without worrying that they will make a mess of the container they’re in. 
 2. **Acrylic Pens :** Acrylic Paint Marker Pens: 
 3. **Texture Rubbing Plates**:
 4. **Permanent Markers**: Crayola Take Note Colored Permanent Marker Set
