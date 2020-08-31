@@ -42,6 +42,8 @@ I have organized the items in this list into common art supplies categories for 
 11. **Paint Containers**: These Melissa & Doug Spill Proof Paint Cups were crucial in the early years of my budding artist’s life when she had major butter fingers and spilled paint everywhere. And now they’re just little paint recepticles that stay at the easel.d
 12. **Large Paint Brushes**: This Melissa & Doug Large Paint Brush Set was my little’s first paint brushes. She still uses them. They are sturdy and have been used to paint many a masterpiece. Great first brushes that last for many years. 
 
+![]()
+
 ### Drawing and Coloring
 
 1. **Oil Pastel Coloring Sticks**: OOLY, Oil Pastel Twisty Stix
