@@ -37,10 +37,10 @@ I have organized the items in this list into common art supplies categories for 
 6. **Paint Roller**: This definitely falls into the category of miscellaneous and not necessary for a basic art kit but we did a printmaking activity once with this Falling in Art Rubber Roller Brayer and I was impressed at how well it held up to my kid’s rough handling. Super solid and easy for little hands to roll. 
 7. **Block Printing Paint**- Again, this Sax True Flow Water Soluble Block Printing Ink is an unnecessary art supply but if you’re looking for this type of paint we like this brand for its smooth application and quick drying time.
 8. **Sponges**: Synthetic Sponges for Painting & Crafts
-9. Crayola Kids Paint Brushes, 4 Count
-10. Crayola Washable Kids Paint
-11. Melissa & Doug Spill Proof Paint Cups
-12. Melissa & Doug Large Paint Brush Set
+9. Paint Brush Variety Pack: rayola Kids Paint Brushes, 4 Count
+10. Washable Paint: Crayola Washable Kids Paint
+11. Paint Containers: Melissa & Doug Spill Proof Paint Cups
+12. Large Paint Brushes: Melissa & Doug Large Paint Brush Set
 
 ### Drawing and Coloring
 
