@@ -28,11 +28,9 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Paint and Paint supplies
 
-1. Tempura Paint: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get 
-
-Crayola Paint Set in Earth Tone Craft Acrylic Paints
-
-Melissa & Doug Deluxe Wooden Standing Art Easel
+1. Tempura Paint: We love crayola anything. This Crayola Premier Tempera Paint is no exception. It’s thick and pigmented. We like to get the squeeze bottles to refill the little containers of paint on kid’s easel.
+2. Acrylic Paint: We like this Crayola Acrylic Paint Set for when we need paint that is permanent. There are diffrent sets that come in such rich and pretty tones. 
+3. Melissa & Doug Deluxe Wooden Standing Art Easel
 
 Kids Art Smocks
 
