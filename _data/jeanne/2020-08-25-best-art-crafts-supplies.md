@@ -74,25 +74,24 @@ I have organized the items in this list into common art supplies categories for 
 ### Arts and crafts
 
 1. Colorful Glitter Foam Stickers
-2. Con-Tact Brand Shelf Liner
-3. Melissa & Doug Reusable Sticker Pad
-4. CuteyCo Crafty Sand
-5. Thin Plastic Transfer Pipettes
-6. Plastic Clear Capsules
-7. Hygloss Products Foam Trays
-8. Puffy Stickers
-9. Plastic Squeeze Bottles
-10. Flexible Mirror Sheets
-11. Embroidery Hoops
-12. Plastic Yarn Sewing Needle Set
-13. Paper Jumbo Smoothie Straws
-14. Pony Beads
-15. Tulip Puffy 3-D Fashion Paint
-16. Craft Rolls
-17. Melissa & Doug Rainbow Stamp Pad
-18. Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
-19. Melissa & Doug Stencil Art Coloring Activity Kit
-20. Craft Holes Punch 1 Inch Paper Punchers
+2. [Magic Brand Shelf Liner](https://amzn.to/32I1mpJ)
+3. [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0)
+4. [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz)
+5. [Plastic Clear Capsules](https://amzn.to/32s71zT)
+6. [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi)
+7. [Puffy Stickers](https://amzn.to/2EtphRw)
+8. [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8)
+9. [Flexible Mirror Sheets](https://amzn.to/3gwQ0JV)
+10. Embroidery Hoops
+11. Plastic Yarn Sewing Needle Set
+12. Paper Jumbo Smoothie Straws
+13. [Pony Beads](https://amzn.to/2Qrwkwj)
+14. Tulip Puffy 3-D Fashion Paint
+15. Craft Rolls
+16. Melissa & Doug Rainbow Stamp Pad
+17. Hygloss Products Bleeding Tissue Assortment- Multi-Color Assortment 12 x 18 Inch, 50 Sheets
+18. Melissa & Doug Stencil Art Coloring Activity Kit
+19. Craft Holes Punch 1 Inch Paper Punchers
 
 ### Art storage
 
@@ -105,15 +104,16 @@ I have organized the items in this list into common art supplies categories for 
 ### Toys, games, and miscellaneous
 
 1. Guidecraft Jr. Rainbow Blocks
-2. Mudpuppy Fire Truck Shaped Mini Puzzle
-3. Square Panda Multisensory Phonics Playset
-4. Mudpuppy Rainbow Lion Shaped Mini Puzzle
-5. Mudpuppy Panther Chameleon Mini Puzzle
-6. Mudpuppy Tyrannosaurus Rex Mini Puzzle
-7. Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
-8. LEGO DOTS Rainbow Jewelry Stand
-9. LED Light Box for Tracing
-10. Constructive Playthings Toys Translucent Pattern Blocks
-11. Melissa & Doug Water Wow
-12. Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
-13. WOWMAZING Giant Bubble Refill Powder Mix
+2. Melissa & Doug Reusable Sticker Pad
+3. Mudpuppy Fire Truck Shaped Mini Puzzle
+4. Square Panda Multisensory Phonics Playset
+5. Mudpuppy Rainbow Lion Shaped Mini Puzzle
+6. Mudpuppy Panther Chameleon Mini Puzzle
+7. Mudpuppy Tyrannosaurus Rex Mini Puzzle
+8. Crayola Paint Your Own Figurines, Decorate Your Own Painting Set
+9. LEGO DOTS Rainbow Jewelry Stand
+10. LED Light Box for Tracing
+11. Constructive Playthings Toys Translucent Pattern Blocks
+12. Melissa & Doug Water Wow
+13. Made By Me Create Your Own Window Art by Horizon Group USA, Paint Your Own Suncatchers
+14. WOWMAZING Giant Bubble Refill Powder Mix
