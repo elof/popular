@@ -47,9 +47,9 @@ I have organized the items in this list into common art supplies categories for 
 ### Drawing and Coloring
 
 1. **Oil Pastels**: I love oil pastels. The creamy texture on a paper and the way you can smudge it. It’s such a versatile art medium. Anyway, my kid has these Oil Pastel Twisty Stix. They’re the best. Since they’re twist up you can store them without worrying that they will make a mess of the container they’re in. 
-2. **Acrylic Pens :** We big on painting rocks here. And using these Acrylic Paint Marker is a perfect portable way to paint without the mess. 
-3. **Texture Rubbing Plates**:
-4. **Permanent Markers**: Crayola Take Note Colored Permanent Marker Set
+2. **Acrylic Pens :** We’re big on painting rocks here. And using these Acrylic Paint Marker is a perfect portable way to paint without the mess. 
+3. **Rubbing Plates**: Use these Texture Rubbing Plates to make your own pattern paper. Each plate comes with two halves that are different motifs so you really get a lot of variation. 
+4. **Permanent Markers**: I’m sure every parent would say, “are your crazy?” about me saying that you should get these for a kid’s art supplies. Of course, let them use it only with adult supervision. We got these Crayola Take Note Colored Permanent Marker Set and they work great on a variety of surfaces, e.g. if you want to upcycle that milk jug into some window suncatchers. And they cost a few bucks less than Sharpies. Win win. 
 5. **Colored Pencils**: Derwent Colored Pencils
 6. **Tempura Paint Sticks**: Kwik Stix Solid Tempera Paint
 7. **Washable Markers**: Crayola Ultra-Clean Washable Markers
