@@ -185,10 +185,6 @@ a {
 
 }
 
-.author {
-
-}
-
 .author-profile-image {
   height: 150px;
   width: 150px;
@@ -200,6 +196,65 @@ a {
   padding-left: 170px;
   padding-top: 20px;
   margin-bottom: 120px;
+}
+
+.author-form-container {
+  background-color: var(--contact-bg);
+  padding: 10px;
+  border: 1px solid var(--contact-bdr);
+  border-radius: 9px;
+  width: 218px;
+  float: right;
+  margin: -145px 0 0 0;
+  label {
+    display: block;
+    color: var(--text-secondary-color);
+  }
+  input[type=text],
+  input[type=email],
+  textarea {
+    appearance: none;
+    border: 1px solid var(--card-shadow);
+    color: var(--text-secondary-color);
+    border-radius: 6px;
+    line-height: 32px;
+    background-color: var(--input-bg);
+    font-family: $font-family;
+    float: left;
+    margin-top: 4px;
+  }
+  textarea {
+    margin-bottom: 2rem;
+    height: 150px;
+  }
+}
+
+.author-button {
+  padding: 7px 10px;
+  display: inline-block;
+  background: var(--btn-bg);
+  border: 1px solid var(--btn-bdr);
+  border-radius: 9px;
+  text-decoration: none;
+  color: var(--btn-text-color);
+  font-size: 16px;
+  font-weight: 400;
+  margin: 4px 0 0 5px;
+  transition: background-color .3s linear;
+  &.-primary {
+    background-color: var(--primary-color);
+    border-color: var(--primary-color);
+    color: var(--primary-text-color);
+    &:hover {
+      background-color: var(--secondary-color);
+      color: var(--primary-text-color);
+      text-decoration: none;
+    }
+  }
+  &:hover {
+    background-color: var(--btn-hover-bg);
+    color: var(--btn-hover-text-color);
+  }
 }
 
 .post-thumbnail {
@@ -317,6 +372,7 @@ a {
     height: 150px;
   }
 }
+
 .two-grids {
   display: grid;
   grid-gap: 32px;
@@ -333,6 +389,7 @@ and (min-width: 768px) {
   grid-template-columns: 1fr 1fr;
 }
 }
+
 @media only screen
   and (min-width: 1024px) {
   .grids {
