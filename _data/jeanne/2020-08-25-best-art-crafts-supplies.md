@@ -68,8 +68,8 @@ I have organized the items in this list into common art supplies categories for 
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
-1. [Elmer's Multi-Purpose Glue-All](https://amzn.to/2YBS0ue)
-2. [Aleene's Tacky Glue](https://amzn.to/32sev5X)
+1. Glue: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
+2. Tacky Glue: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
 3. **Washi Tape**: [Washi Tape](https://amzn.to/3lzVPtU)
 4. **Tape Stand** [8 Roll 1-inch Tape Holder ](https://amzn.to/34zwkCH)
 
