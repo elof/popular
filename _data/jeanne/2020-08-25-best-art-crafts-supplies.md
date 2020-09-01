@@ -86,8 +86,8 @@ I have organized the items in this list into common art supplies categories for 
 7. **Squeeze Bottles**: Get yourself some  [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8), they’re good for many uses like storing paint, puffy paint, glue, liquid watercolor, etc. I like these because the plastic is thick and they’re large.
 8. **Embroidery Hoops**: This set of [Embroidery Hoops](https://amzn.to/3gskpJb) is a cheap and sturdy set that we’ve used quite a few times. One of the top activities we do with these hoops is “sewing”. Such a good fine motor activity. [](https://amzn.to/3gskpJb)
 9. **Sewing Needles**: I like these [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp) because they’re large, easy for little hands and safe for kid use. [](https://amzn.to/2FXDqqp)
-10. [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j)
-11. [Pony Beads](https://amzn.to/2Qrwkwj)
+10. **Straws**: I cut these [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j) up into small pieces for stringing and making necklaces. Another tried and true kid activity that most kids seem to like. [](https://amzn.to/3gBCx3j)
+11. **Pony Beads**: We use for necklaces too. This set of [Pony Beads](https://amzn.to/2Qrwkwj) is a good value with lots of colors. [](https://amzn.to/2Qrwkwj)
 12. [Tulip Puffy 3-D Fashion Paint](https://amzn.to/3hAvqtA)
 13. [Craft Rolls](https://amzn.to/3jlDUFp)
 14. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
