@@ -79,7 +79,7 @@ I have organized the items in this list into common art supplies categories for 
 
 1. **Foam Stickers**: Colorful Glitter Foam Stickers
 2. **Contact Paper**: Just nice to have around to do fun low mess art activities. Just google contact paper activities, it’ll blow your mind the number of ways you can use this material. Doubles as a sensory material because of the stickiness. Another easy activity for slow days. 
-3. [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0)
+3. **Craft Sand**: This [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0) is hands down in the top 5 art materials my kid loves the most. She asks to use this stuff all the time.I say yes maybe 50% of the time because it is messy. We primarily use it to make sand and glue art (a future tutorial) but I’m certain it can be used in a sensory bin. [](https://amzn.to/2YBL4x0)
 4. [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz)
 5. [Plastic Clear Capsules](https://amzn.to/32s71zT)
 6. [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi)
