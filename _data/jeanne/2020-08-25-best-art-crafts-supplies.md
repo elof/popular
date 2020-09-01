@@ -54,8 +54,8 @@ I have organized the items in this list into common art supplies categories for 
 6. **Tempura Paint Sticks**: We first encountered these [Kwik Stix Solid Tempera Paint Sticks](https://amzn.to/3loVmua) at a little buddy’s house and I fell in love with the thick and rich colors. Also, they’re low mess and dry so quickly. 
 7. **Washable Markers**: They had me at washable. Also, Crayola simply makes the best markeSri. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
 8. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
-9. Sidewalk Chalk: [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F)
-10. Crayons: [Ooly Easy to Hold Crayon ](https://amzn.to/2D5VTA1)
+9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
+10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
 ![]()
 
@@ -70,7 +70,7 @@ I have organized the items in this list into common art supplies categories for 
 
 1. Glue: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
 2. Tacky Glue: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
-3. **Washi Tape**: [Washi Tape](https://amzn.to/3lzVPtU)
+3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
 4. **Tape Stand** [8 Roll 1-inch Tape Holder ](https://amzn.to/34zwkCH)
 
 ### Arts and crafts
