@@ -61,15 +61,15 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Manipulatives
 
-1. Oven Baked Clay: Sculpey clay is a great way to work on those fine motor skills. Make little figures and shapes then bake them to make a forever keepsake. This [Sculpey Classic Multipack](https://amzn.to/2EHoPi4) has so many colors, it’s a good starter set.  [](https://amzn.to/2EHoPi4)
-2. Shaving Foam: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.  
-3. Water Beads: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
+1. **Oven Baked Clay**: Sculpey clay is a great way to work on those fine motor skills. Make little figures and shapes then bake them to make a forever keepsake. This [Sculpey Classic Multipack](https://amzn.to/2EHoPi4) has so many colors, it’s a good starter set.  [](https://amzn.to/2EHoPi4)
+2. **Shaving Foam**: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.  
+3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
 4. [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ)
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
-1. Glue: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
-2. Tacky Glue: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
+1. **Glue**: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
+2. **Tacky Glue**: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
 3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
 4. **Tape Stand** [8 Roll 1-inch Tape Holder ](https://amzn.to/34zwkCH)
 
