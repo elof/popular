@@ -77,8 +77,8 @@ I have organized the items in this list into common art supplies categories for 
 
 ### Arts and crafts
 
-1. Colorful Glitter Foam Stickers
-2. [Magic Brand Shelf Liner](https://amzn.to/32I1mpJ)
+1. Foam Stickers: Colorful Glitter Foam Stickers
+2. Contact Paper: Just nice to have around to do fun low mess art activities. Just google contact paper activities, it’ll blow your mind the number of ways you can use this material. Doubles as a sensory material because of the stickiness. Another easy activity for slow days. 
 3. [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0)
 4. [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz)
 5. [Plastic Clear Capsules](https://amzn.to/32s71zT)
