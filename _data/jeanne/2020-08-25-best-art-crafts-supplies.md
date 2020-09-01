@@ -73,7 +73,9 @@ I have organized the items in this list into common art supplies categories for 
 1. **Glue**: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
 2. **Tacky Glue**: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
 3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
-4. **Tape Stand** [8 Roll 1-inch Tape Holder ](https://amzn.to/34zwkCH)
+4. **Tape Stand** [8 Roll 1-inch Tape Holder](https://amzn.to/34zwkCH)
+
+![]()
 
 ### Arts and crafts
 
@@ -92,12 +94,13 @@ I have organized the items in this list into common art supplies categories for 
 13. **Stamp Pad**: We like this because it has lots of colors and is all in one large Pad for easy storage. Oh, and it’s washable. Yes. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
 14. **Tissue Paper**: Not to be mistaken for regular tissue paper, bleeding tissue paper does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o)
 15. **Stencils**: This [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr) was one of the items we got for an activity to do on a camping trip. The stencils are thick and it comes with a storage pouch. A nice portable activity for when you’re out and about. 
-16. **Paper Punchers**: We use these to make our own confetti for collages and such. My kid can do it herself because the lever is easy to push. My favorite kind of art supply is one that my kid doesn’t need my help with.  [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz)
+16. **Paper Punchers**: We use these [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz) to make our own confetti for collages and such. My kid can do it herself because the lever is easy to push. My favorite kind of art supply is one that my kid doesn’t need my help with.  [](https://amzn.to/3jpUHqz)
+
+![]()
 
 ### Art storage
 
-1. **Art Caddy**: [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)
-2. **Art Cart**: [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
-3. **Storage Bins**: [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
-4. **Paper Storage**: [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
-5. **Storage Box**: [3 Drawer Wood Pastel Storage Box](https://amzn.to/2YDN3Bc)
+1. **Art Caddy**: We have this to store art supplies that my kid can move around the house with her. It’s also a good solution for when you have little space. I like that it’s large and colorful. [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)
+2. **Art Cart**: This art cart is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
+3. **Storage Bins**: I use these to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
+4. **Paper Storage**: These file boxes are good for storing the millions of different types of paper we have. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
