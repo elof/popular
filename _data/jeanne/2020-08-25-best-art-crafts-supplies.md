@@ -80,22 +80,21 @@ I have organized the items in this list into common art supplies categories for 
 1. **Foam Stickers**: I got these Colorful Glitter Foam Stickers to add to our basic colored ones. They are so damn shiny it makes me smile every time we use them. I know I’m crazy because I do have a love/hate relationship with glitter, these shed a little glitter but how can you be mad at something to pretty. 
 2. **Contact Paper**: Just nice to have around to do fun low mess art activities. Just google contact paper activities, it’ll blow your mind the number of ways you can use this material. Doubles as a sensory material because of the stickiness. Another easy activity for slow days. 
 3. **Craft Sand**: This [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0) is hands down in the top 5 art materials my kid loves the most. She asks to use this stuff all the time.I say yes maybe 50% of the time because it is messy. We primarily use it to make sand and glue art (a future tutorial) but I’m certain it can be used in a sensory bin. [](https://amzn.to/2YBL4x0)
-4. [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz)
-5. [Plastic Clear Capsules](https://amzn.to/32s71zT)
-6. [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi)
-7. [Puffy Stickers](https://amzn.to/2EtphRw)
-8. [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8)
-9. [Flexible Mirror Sheets](https://amzn.to/3gwQ0JV)
-10. [Embroidery Hoops](https://amzn.to/3gskpJb)
-11. [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp)
-12. [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j)
-13. [Pony Beads](https://amzn.to/2Qrwkwj)
-14. [Tulip Puffy 3-D Fashion Paint](https://amzn.to/3hAvqtA)
-15. [Craft Rolls](https://amzn.to/3jlDUFp)
-16. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
-17. [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o)
-18. [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr)
-19. **Paper Punchers**: [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz)
+4. **Pipettes**: These were mine from watercolor painting. I used them to pipe water into my palette. But we found many uses for these [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz) for my kid’s art projects too. We try to reuse them as much as possible usually good for 2-3 uses but eventually they get liquid stuck in them but since this set comes with so many you’ll probably be able to use them forever.
+5. **Foam Trays**: I initially got these [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi) to try printmaking myself. Never got to it and did the activity with my kid and she loved it. The results are so pretty. You can definitely use these for art trays and art storage too.  [](https://amzn.to/3lq0GOi)
+6. [Puffy Stickers](https://amzn.to/2EtphRw)
+7. [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8)
+8. [Flexible Mirror Sheets](https://amzn.to/3gwQ0JV)
+9. [Embroidery Hoops](https://amzn.to/3gskpJb)
+10. [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp)
+11. [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j)
+12. [Pony Beads](https://amzn.to/2Qrwkwj)
+13. [Tulip Puffy 3-D Fashion Paint](https://amzn.to/3hAvqtA)
+14. [Craft Rolls](https://amzn.to/3jlDUFp)
+15. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
+16. [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o)
+17. [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr)
+18. **Paper Punchers**: [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz)
 
 ### Art storage
 
