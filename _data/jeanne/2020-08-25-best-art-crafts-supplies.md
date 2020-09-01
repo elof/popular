@@ -66,6 +66,8 @@ I have organized the items in this list into common art supplies categories for 
 3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
 4. [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ)
 
+![]()
+
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
 1. **Glue**: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
