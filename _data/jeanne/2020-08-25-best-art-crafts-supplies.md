@@ -82,8 +82,8 @@ I have organized the items in this list into common art supplies categories for 
 3. **Craft Sand**: This [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0) is hands down in the top 5 art materials my kid loves the most. She asks to use this stuff all the time.I say yes maybe 50% of the time because it is messy. We primarily use it to make sand and glue art (a future tutorial) but I’m certain it can be used in a sensory bin. [](https://amzn.to/2YBL4x0)
 4. **Pipettes**: These were mine from watercolor painting. I used them to pipe water into my palette. But we found many uses for these [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz) for my kid’s art projects too. We try to reuse them as much as possible usually good for 2-3 uses but eventually they get liquid stuck in them but since this set comes with so many you’ll probably be able to use them forever.
 5. **Foam Trays**: I initially got these [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi) to try printmaking myself. Never got to it and did the activity with my kid and she loved it. The results are so pretty. You can definitely use these for art trays and art storage too.  [](https://amzn.to/3lq0GOi)
-6. [Puffy Stickers](https://amzn.to/2EtphRw)
-7. [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8)
+6. **Puffy Stickers**: I have a love/hate relationship with stickers. In general, I think they’re fun and how much more fun if they’re a step up from two dimensional. I like this set of [Puffy Stickers](https://amzn.to/2EtphRw), they’re a bit pricier than some of the other stuff you find on Amazon but I like the colors and the designs are cute and don’t look janky. [](https://amzn.to/2EtphRw)
+7. **Squeeze Bottles**: Get yourself some  [Plastic Squeeze Bottles](https://amzn.to/3aZYsA8), they’re good for many uses like storing paint, puffy paint, glue, liquid watercolor, etc. I like these because the plastic is thick and they’re large. 
 8. [Flexible Mirror Sheets](https://amzn.to/3gwQ0JV)
 9. [Embroidery Hoops](https://amzn.to/3gskpJb)
 10. [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp)
