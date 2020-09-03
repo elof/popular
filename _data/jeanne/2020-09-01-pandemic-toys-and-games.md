@@ -7,7 +7,9 @@ thumbnail: /assets/D75FF53B-746D-4C8A-86AF-24AB3B980ADA.jpeg
 ---
 So I don’t know about you but when my kid’s preschool announced immediate closure due to COVID, my gut reaction was a four letter expletive. At this point, she had been in school for nearly 2 years full time. What in the world were we going to do at home? There was simply too much time and not enough to do. I‘m being facetious but I figured a little toy refresh was in order because these are weird times. The usual new toys only on birthdays and Christmas rule went out the door. 
 
- I went on a bit of a spending spree and got here some toys and games that would give her some focused activity. Let’s be real, little kids have short attention spans and I wasn’t expecting hours and hours of independent play but I was hoping for enough time to drink my coffee warm. So, I present to you my pandemic toy, game, and activity haul. This kid better not say she’s bored every again. 
+I went on a bit of a spending spree and got her some new stuff that would give her some focused activity. Let’s be real, little kids have short attention spans and I wasn’t expecting hours and hours of independent play but I was hoping for enough time to drink my coffee warm. 
+
+So, I present to you my pandemic toy, game, and activity haul. This isn‘t a spectacular list of the best of the best but my kid liked this stuff and continues to play with it, today eventhough she’s been back too school for a month now. This kid better not say she’s bored every again. 
 
 ### Toys, games, and miscellaneous
 
