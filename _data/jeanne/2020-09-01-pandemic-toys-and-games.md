@@ -9,21 +9,20 @@ So I don’t know about you but when my kid’s preschool announced immediate cl
 
 I went on a bit of a spending spree and got her some new stuff that would give her some focused activity. Let’s be real, little kids have short attention spans and I wasn’t expecting hours and hours of independent play but I was hoping for enough time to drink my coffee warm. 
 
-So, I present to you my pandemic toy, game, and activity haul. This isn‘t a spectacular list of the best of the best but my kid liked this stuff and continues to play with it, today eventhough she’s been back too school for a month now. This kid better not say she’s bored every again. 
+So, I present to you my pandemic toy, game, and activity haul. A few of these items were  birthday gifts but since it was during the shelter in place, I’ve included them in this post. This isn‘t a spectacular list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. This kid better not say she’s bored every again. 
 
 ### Toys, games, and miscellaneous
 
 1. Guidecraft Jr. Rainbow Blocks
-2. Melissa & Doug Reusable Sticker Pad
-3. Mudpuppy Fire Truck Shaped Mini Puzzle
-4. Mudpuppy Rainbow Lion Shaped Mini Puzzle
-5. Mudpuppy Panther Chameleon Mini Puzzle
-6. Mudpuppy Tyrannosaurus Rex Mini Puzzle
-7. Square Panda Multisensory Phonics Playset
-8. [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A)
-9. [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia)
-10. [LED Light Box for Tracing](https://amzn.to/2YEH6E9)
-11. [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR)
-12. [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1)
-13. [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd)  Paint Your Own Suncatchers
-14. [WOWMAZING Giant Bubble Refill Powder Mix](https://amzn.to/34zG2oC)
+2. Mudpuppy Fire Truck Shaped Mini Puzzle
+3. Mudpuppy Rainbow Lion Shaped Mini Puzzle
+4. Mudpuppy Panther Chameleon Mini Puzzle
+5. Mudpuppy Tyrannosaurus Rex Mini Puzzle
+6. Square Panda Multisensory Phonics Playset
+7. [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A)
+8. [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia)
+9. [LED Light Box for Tracing](https://amzn.to/2YEH6E9)
+10. [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR)
+11. [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1)
+12. [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd)  Paint Your Own Suncatchers
+13. [WOWMAZING Giant Bubble Refill Powder Mix](https://amzn.to/34zG2oC)
