@@ -14,7 +14,7 @@ I have organized the items in this list into common art supplies categories for 
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
-![](/assets/daniel-lincoln-HlEu2OvHtI0-unsplash.jpg)
+![](/assets/Untitled design.png)
 
 ### Paper
 
