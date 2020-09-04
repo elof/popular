@@ -14,7 +14,7 @@ I have organized the items in this list into common art supplies categories for 
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
-![](/assets/Untitled design.png)
+![](/assets/Paper.png)
 
 ### Paper
 
@@ -42,7 +42,7 @@ I have organized the items in this list into common art supplies categories for 
 11. **Paint Containers**: These [Melissa & Doug Spill Proof Paint Cups](https://amzn.to/3hy1WMS) were crucial in the early years of my budding artist’s life when she had major butter fingers and spilled paint everywhere. And now they’re just little paint recepticles that stay at the easel.d
 12. **Large Paint Brushes**: This [Melissa & Doug Large Paint Brush Set](https://amzn.to/2EADITt) was my little’s first paint brushes. She still uses them. They are sturdy and have been used to paint many a masterpiece. Great first brushes that last for many years. 
 
-![]()
+![](/assets/Drawing & Coloring.png)
 
 ### Drawing and Coloring
 
@@ -57,7 +57,7 @@ I have organized the items in this list into common art supplies categories for 
 9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
-![]()
+![](/assets/Manipulatives.png)
 
 ### Manipulatives
 
