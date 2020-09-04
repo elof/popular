@@ -57,7 +57,7 @@ I have organized the items in this list into common art supplies categories for 
 9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
-![](/assets/Manipulatives.png)
+![](/assets/4.png)
 
 ### Manipulatives
 
@@ -66,7 +66,7 @@ I have organized the items in this list into common art supplies categories for 
 3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
 4. **Fine Motor Tools**: Scaffold the sensory activitiles with tools that kids can use to cut, mold, shape, etc. We have this set [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ) and it yields long periods of uninterrupted play, did you hear that? No? Quiet...ahhhhhhh. [](https://amzn.to/2YAPHHZ)
 
-![]()
+![](/assets/5.png)
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
