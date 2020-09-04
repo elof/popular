@@ -4,7 +4,7 @@ path: /jeanne/best-art-crafts-supplies-part1
 date: 2020-08-25T06:08:00.000Z
 title: 'The Best Arts & Crafts Supplies for Toddlers to School Age Kids, Part 1'
 metaDescription: ''
-thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
+thumbnail: ''
 ---
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
