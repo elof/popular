@@ -25,7 +25,7 @@ I have organized the items in this list into common art supplies categories for 
 5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
 6. **White Paper**: We use good old printer paper for everyday doodles. This ream of [AmazonBasics Multipurpose Copy Printer Paper](https://amzn.to/2YA9AyA) does a decent job. It’s medium weight, bright, and a good value. I don’t know about you but my kid goes through so much white paper.
 
-![]()
+![](/assets/Paint & Painting Supplies.png)
 
 ### Paint and Paint supplies
 
