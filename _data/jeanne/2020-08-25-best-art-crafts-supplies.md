@@ -4,15 +4,17 @@ path: /jeanne/best-art-crafts-supplies-part1
 date: 2020-08-25T06:08:00.000Z
 title: 'The Best Arts & Crafts Supplies for Toddlers to School Age Kids, Part 1'
 metaDescription: ''
-thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
+thumbnail: ''
 ---
+![](/assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg)
+
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
-We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. Included in the mix is some non-essential supplies, toys, and games but since it’s pandemic life there’s so much time to do fun things, so I thought why not. 
-
-I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. With that said, let’s get started, shall we?
-
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
+![](/assets/Hero.png)
+
+We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. With that said, let’s get started, shall we?
 
 ![](/assets/Paper.png)
 
@@ -57,7 +59,7 @@ I have organized the items in this list into common art supplies categories for 
 9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
-![](/assets/4.png)
+![](/assets/Manipulatives.png)
 
 ### Manipulatives
 
