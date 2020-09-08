@@ -59,7 +59,7 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
-![](/assets/4.png)
+![](/assets/Manipulatives.png)
 
 ### Manipulatives
 
