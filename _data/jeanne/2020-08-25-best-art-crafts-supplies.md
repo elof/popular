@@ -1,20 +1,20 @@
 ---
 template: BlogPost
 path: /jeanne/best-art-crafts-supplies-part1
-date: 2020-08-25T06:08:00.000Z
+date: 2020-09-09T06:08:00.000Z
 title: 'The Best Arts & Crafts Supplies for Toddlers to School Age Kids, Part 1'
 metaDescription: ''
-thumbnail: ''
+thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
 ---
-![](/assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg)
-
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
-\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
 
 ![](/assets/Hero.png)
 
 We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. With that said, let’s get started, shall we?
+
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
 ![](/assets/Paper.png)
 
@@ -68,7 +68,7 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
 4. **Fine Motor Tools**: Scaffold the sensory activitiles with tools that kids can use to cut, mold, shape, etc. We have this set [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ) and it yields long periods of uninterrupted play, did you hear that? No? Quiet...ahhhhhhh. [](https://amzn.to/2YAPHHZ)
 
-![](/assets/5.png)
+![](/assets/Glue, Tape, and Adhesives.png)
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
 
@@ -77,7 +77,7 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
 4. **Tape Stand** [8 Roll 1-inch Tape Holder](https://amzn.to/34zwkCH)
 
-![]()
+![](/assets/Ars and Crafts.png)
 
 ### Arts and crafts
 
@@ -92,13 +92,13 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 9. **Sewing Needles**: I like these [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp) because they’re large, easy for little hands and safe for kid use. [](https://amzn.to/2FXDqqp)
 10. **Straws**: I cut these [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j) up into small pieces for stringing and making necklaces. Another tried and true kid activity that most kids seem to like. [](https://amzn.to/3gBCx3j)
 11. **Pony Beads**: We use for necklaces too. This set of [Pony Beads](https://amzn.to/2Qrwkwj) is a good value with lots of colors.
-12. **Craft Rolls**: I mean, yes of course you can use toilet rolls but these  are sturdier [Craft Rolls](https://amzn.to/3jlDUFp)
-13. **Stamp Pad**: We like this because it has lots of colors and is all in one large Pad for easy storage. Oh, and it’s washable. Yes. [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0)
-14. **Tissue Paper**: Not to be mistaken for regular tissue paper, bleeding tissue paper does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o)
+12. **Craft Rolls**: I mean, yes of course you can use toilet rolls but these [Craft Rolls](https://amzn.to/3jlDUFp) are sturdier.[](https://amzn.to/3jlDUFp)
+13. **Stamp Pad**: We like this [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0) because it has lots of colors and is all in one large Pad for easy storage. Oh, and it’s washable. Yes. [](https://amzn.to/2El4Qq0)
+14. **Tissue Paper**: Not to be mistaken for regular tissue paper, [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o) does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [](https://amzn.to/3jiHn7o)
 15. **Stencils**: This [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr) was one of the items we got for an activity to do on a camping trip. The stencils are thick and it comes with a storage pouch. A nice portable activity for when you’re out and about. 
 16. **Paper Punchers**: We use these [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz) to make our own confetti for collages and such. My kid can do it herself because the lever is easy to push. My favorite kind of art supply is one that my kid doesn’t need my help with.  [](https://amzn.to/3jpUHqz)
 
-![]()
+![](/assets/Art Storage.png)
 
 ### Art storage
 
