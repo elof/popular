@@ -8,8 +8,6 @@ thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
 ---
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
-
-
 ![](/assets/Hero.png)
 
 We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. With that said, let’s get started, shall we?
@@ -106,3 +104,5 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 2. **Art Cart**: This art cart is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
 3. **Storage Bins**: I use these to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
 4. **Paper Storage**: These file boxes are good for storing the millions of different types of paper we have. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
+
+Whew, that was a long list wasn't it? I I hope this was helpful to you. Get a few things to start if it feels overwhleming. And if doing art with your child isn't intuitive or natuarul to you, remember it doesn't take much to  get started. Check back to folow my journey in making art with my litlte human. Thanks for stopping by! Catch you later, BYE!
