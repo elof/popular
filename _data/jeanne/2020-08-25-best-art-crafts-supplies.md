@@ -8,11 +8,15 @@ thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
 ---
 Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many options of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
+
+
 ![](/assets/Hero.png)
 
 We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. With that said, let’s get started, shall we?
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
+
 
 ![](/assets/Paper.png)
 
@@ -24,6 +28,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds to them every so often. 
 5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
 6. **White Paper**: We use good old printer paper for everyday doodles. This ream of [AmazonBasics Multipurpose Copy Printer Paper](https://amzn.to/2YA9AyA) does a decent job. It’s medium weight, bright, and a good value. I don’t know about you but my kid goes through so much white paper.
+
+
 
 ![](/assets/Paint & Painting Supplies.png)
 
@@ -42,6 +48,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 11. **Paint Containers**: These [Melissa & Doug Spill Proof Paint Cups](https://amzn.to/3hy1WMS) were crucial in the early years of my budding artist’s life when she had major butter fingers and spilled paint everywhere. And now they’re just little paint recepticles that stay at the easel.d
 12. **Large Paint Brushes**: This [Melissa & Doug Large Paint Brush Set](https://amzn.to/2EADITt) was my little’s first paint brushes. She still uses them. They are sturdy and have been used to paint many a masterpiece. Great first brushes that last for many years. 
 
+
+
 ![](/assets/Drawing & Coloring.png)
 
 ### Drawing and Coloring
@@ -57,6 +65,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
+
+
 ![](/assets/Manipulatives.png)
 
 ### Manipulatives
@@ -66,6 +76,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
 4. **Fine Motor Tools**: Scaffold the sensory activitiles with tools that kids can use to cut, mold, shape, etc. We have this set [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ) and it yields long periods of uninterrupted play, did you hear that? No? Quiet...ahhhhhhh. [](https://amzn.to/2YAPHHZ)
 
+
+
 ![](/assets/Glue, Tape, and Adhesives.png)
 
 ### [](https://amzn.to/2YAPHHZ)Glue, adhesives, and tape
@@ -73,7 +85,9 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 1. **Glue**: My kid uses so much glue so we get these large jugs of [Elmer's Multi-Purpose Glue-All ](https://amzn.to/2YBS0ue)to refill the little bottles. Economical and cuts down on plastic. [](https://amzn.to/2YBS0ue)
 2. **Tacky Glue**: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
 3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
-4. **Tape Stand** [8 Roll 1-inch Tape Holder](https://amzn.to/34zwkCH)
+4. **Tape Stand**: This  [8 Roll 1-inch Tape Holder](https://amzn.to/34zwkCH) was a gift from my kid's aunt. It's heavy and the tape is nice and thick. A rainbow assortment of masking tape. What's not to love?   
+
+
 
 ![](/assets/Ars and Crafts.png)
 
@@ -105,4 +119,6 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Storage Bins**: I use these to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
 4. **Paper Storage**: These file boxes are good for storing the millions of different types of paper we have. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
 
-Whew, that was a long list wasn't it? I I hope this was helpful to you. Get a few things to start if it feels overwhleming. And if doing art with your child isn't intuitive or natuarul to you, remember it doesn't take much to  get started. Check back to folow my journey in making art with my litlte human. Thanks for stopping by! Catch you later, BYE!
+
+
+Whew, that was a long list wasn't it? I I hope this was helpful to you. And if doing art with your child isn't intuitive or natuarul to you, remember it doesn't take much to  get started. Check back to folow my journey in making art with my litlte human. Catch you later, BYE!
