@@ -39,12 +39,15 @@ const JeannePage = ({
         {Posts}
       </div>
       <div>
-      <form name="MailingList" method="post" className="author-form-container" netlify-honeypot="bot-field" data-netlify="true" >
-          <input type="hidden" name="form-name" value="MainingList" />
-          <input type="hidden" name="bot-field" class="hidden"/>
-          <label>Join Jeanne's Mailing List <input type="email" name="email" /></label>
-          <button type="submit" className="author-button -primary">Send</button>
-      </form>
+        <form name="MailingList" method="post" className="author-form-container" netlify-honeypot="bot-field" data-netlify="true" >
+        <input type="hidden" name="form-name" value="MailingList" />
+        <p class="hidden">
+          <input type="hidden" name="bot-field" />
+        </p>
+            <label>Join Jeanne's Mailing List <input type="email" name="email" /></label>
+            <button type="submit" className="author-button -primary">Send</button>
+          <p></p>
+        </form>
       </div>
     </Layout>
   )

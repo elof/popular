@@ -196,6 +196,7 @@ a {
   padding-left: 170px;
   padding-top: 20px;
   margin-bottom: 120px;
+  text-align: left;
 }
 
 .author-form-container {
@@ -387,6 +388,11 @@ a {
 and (min-width: 768px) {
 .grids {
   grid-template-columns: 1fr 1fr;
+}
+.home-page-intro {
+  width: 80%;
+  margin: 0 auto;
+  color: #2F4F4F;
 }
 }
 
