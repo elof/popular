@@ -150,7 +150,7 @@ a {
 }
 
 .home-page-intro {
-  width: 400px;
+  max-width: 550px;
   margin: 0 auto;
   color: #2F4F4F;
 }
@@ -388,11 +388,6 @@ a {
 and (min-width: 768px) {
 .grids {
   grid-template-columns: 1fr 1fr;
-}
-.home-page-intro {
-  width: 80%;
-  margin: 0 auto;
-  color: #2F4F4F;
 }
 }
 
