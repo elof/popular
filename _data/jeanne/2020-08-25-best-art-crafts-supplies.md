@@ -74,16 +74,14 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 2. **Tacky Glue**: I learned about [Aleene's Tacky Glue](https://amzn.to/32sev5X) from my days as a preschool teacher. For those times that regular glue just won’t [](https://amzn.to/32sev5X)do the trick. This stuff is as it’s name suggested sticky and we’ve used it to glue buttons, plastic gems, pom poms, you name it. [](https://amzn.to/32sev5X)
 3. **Washi Tape**: I guess [Washi Tape](https://amzn.to/3lzVPtU) could be considered a non-essential but  is so much fun to have because it comes in so many different designs and colors. It’s easy for little hands to tear. What’s not to love? [](https://amzn.to/3lzVPtU)
 4. **Tape Stand**: There was one of these  [8 Roll 1-inch Tape Holder](https://amzn.to/34zwkCH) at the preschool I worked at and the kids loved it. They made so many cool creations with tape.
-5. **Masking Tape**: Colorful tape for that tape holder in bright fun colors. 
-
-
+5. **Masking Tape**: [Colorful tape](https://amzn.to/32dQwZb) for that tape holder in bright fun colors. 
 
 ![](/assets/Ars and Crafts.png)
 
 ### Arts and crafts
 
-1. **Foam Stickers**: I got these Colorful Glitter Foam Stickers to add to our basic colored ones. They are so damn shiny it makes me smile every time we use them. I know I’m crazy because I do have a love/hate relationship with glitter, these shed a little glitter but how can you be mad at something to pretty. 
-2. **Contact Paper**: Contact paper is just nice to have around to do fun low mess art activities. Just google contact paper activities, it’ll blow your mind the number of ways you can use this material. Doubles as a sensory iteml because of the stickiness. Another easy activity for slow days. 
+1. **Foam Stickers**: I got these [Colorful Glitter Foam Stickers](https://amzn.to/32OvfVo) to add to our basic colored ones. They are so damn shiny it makes me smile every time we use them. I know I’m crazy because I do have a love/hate relationship with glitter, these shed a little glitter but how can you be mad at something to pretty. 
+2. **Contact Paper**: [Contact paper](https://amzn.to/3377Uy0) is just nice to have around to do fun low mess art activities. Just google contact paper activities, it’ll blow your mind the number of ways you can use this material. Doubles as a sensory iteml because of the stickiness. Another easy activity for slow days. 
 3. **Craft Sand**: This [CuteyCo Crafty Sand](https://amzn.to/2YBL4x0) is hands down in the top 5 art materials my kid loves the most. She asks to use this stuff all the time.I say yes maybe 50% of the time because it is messy. We primarily use it to make sand and glue art (a future tutorial) but I’m certain it can be used in a sensory bin. [](https://amzn.to/2YBL4x0)
 4. **Pipettes**: These were mine from my watercolor painting days. I used them to pipe water into my palette. But we found many uses for these [Thin Plastic Transfer Pipettes](https://amzn.to/3gtIhfz) for my kid’s art projects too. We try to reuse them as much as possible usually good for 2-3 uses but eventually they get liquid stuck in them but since this set comes with so many you’ll probably be able to use them forever.
 5. **Foam Trays**: I initially got these [Hygloss Products Foam Trays](https://amzn.to/3lq0GOi) to try printmaking myself. Never got to it and did the activity with my kid and she loved it. You can definitely use these for art trays and art storage too.  [](https://amzn.to/3lq0GOi)
@@ -98,8 +96,6 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 14. **Tissue Paper**: Not to be mistaken for regular tissue paper, [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o) does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [](https://amzn.to/3jiHn7o)
 15. **Stencils**: This [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr) was one of the items we got for an activity to do on a camping trip. The stencils are thick and it comes with a storage pouch. A nice portable activity for when you’re out and about. 
 16. **Paper Punchers**: We use these [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz) to make our own confetti for collages and such. My kid can do it herself because the lever is easy to push. My favorite kind of art supply is one that my kid doesn’t need my help with.  [](https://amzn.to/3jpUHqz)
-
-
 
 ![](/assets/Art Storage.png)
 
