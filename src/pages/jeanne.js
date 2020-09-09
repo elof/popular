@@ -32,17 +32,19 @@ const JeannePage = ({
           <p>
             Send tips to: @jeanneluong on Venmo
           </p>
-          <form name="MailingList" method="post" className="author-form-container" netlify-honeypot="bot-field" data-netlify="true" >
-              <input type="hidden" name="form-name" value="MainingList" />
-              <input type="hidden" name="bot-field" class="hidden"/>
-              <label>Join Jeanne's Mailing List <input type="email" name="email" /></label>
-              <button type="submit" className="author-button -primary">Send</button>
-          </form>
         </div>
       </div>
       <h2>Posts &darr;</h2>
       <div className="grids">
         {Posts}
+      </div>
+      <div>
+      <form name="MailingList" method="post" className="author-form-container" netlify-honeypot="bot-field" data-netlify="true" >
+          <input type="hidden" name="form-name" value="MainingList" />
+          <input type="hidden" name="bot-field" class="hidden"/>
+          <label>Join Jeanne's Mailing List <input type="email" name="email" /></label>
+          <button type="submit" className="author-button -primary">Send</button>
+      </form>
       </div>
     </Layout>
   )
