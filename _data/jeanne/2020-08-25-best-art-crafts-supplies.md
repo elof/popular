@@ -62,8 +62,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 ### Manipulatives
 
 1. **Oven Baked Clay**: Sculpey clay is a great way to work on those fine motor skills. Make little figures and shapes then bake them to make a forever keepsake. This [Sculpey Classic Multipack](https://amzn.to/2EHoPi4) has so many colors, it’s a good starter set.  [](https://amzn.to/2EHoPi4)
-2. **Shaving Foam**: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.  
-3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
+2. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful.
+3. **Shaving Foam**: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.   [](https://amzn.to/3lq7LhQ)
 4. **Fine Motor Tools**: Scaffold the sensory activitiles with tools that kids can use to cut, mold, shape, etc. We have this set [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ) and it yields long periods of uninterrupted play, did you hear that? No? Quiet...ahhhhhhh. [](https://amzn.to/2YAPHHZ)
 
 ![](/assets/Glue, Tape, and Adhesives.png)
