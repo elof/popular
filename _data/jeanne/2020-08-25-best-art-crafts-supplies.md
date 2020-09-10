@@ -18,11 +18,11 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 
 ### Paper
 
-1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other basic colored construction paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much. 
-2. **Easel Paper Rolls**: We got the [Melissa & Doug Easel Paper Rolls ](https://amzn.to/2Qt0yiw)initially as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brands because it’s heavy duty and can withstand layers and layers of paint. 
-3. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to handle wash after wash of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
-4. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds new doodles/art to them every so often. 
-5. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
+1. **Construction Paper**: We got this [Colorations Construction Paper Pack](https://amzn.to/34BRDDG) to go with her other basic colored construction paper because it’s so bright and vibrant. Also, it’s super heavy weight makes cutting easier because the paper doesn’t flop around as much.
+2. **Mixed Media Paper**: I like getting these [Arteza Mixed Media Sketch Book](https://amzn.to/3gBpLSp) for my kid because it makes for a nice keepsake that is contained in one neat place. Also, we’ve used this mixed media paper with oil pastels, tempura paint, watercolor paint, you name it—it’s superior quality. I’m impressed with how well it withstands any art medium that is used on it. I leave a couple in my kid’s art cart and she grabs them and adds new doodles/art to them every so often. 
+3. **Easel Paper Rolls**: We got the [Melissa & Doug Easel Paper Rolls ](https://amzn.to/2Qt0yiw)initially as part of a set that came with the Melissa & Doug easel but we’ve gone back to this one after trying other brands because it’s heavy duty and can withstand layers and layers of paint. 
+4. **Color Cardstock**: We got these [Crayola Cardstock Paper](https://amzn.to/2YCxVnL) for their colorful and fun designs. Each pattern in the set of 25 sheets is different. We’ve used them for so many different projects. They’re heavy weight and acid free too.
+5. **Watercolor Paper**: This [Canson XL Series Watercolor Pad](https://amzn.to/3gAFwJs) is my favorite budget watercolor paper. We prefer these over kid specific watercolor paper because it’s heavy enough to handle wash after wash of paint and just an overall good quality student grade paper with a textured surface. Mama and kid both use it.
 6. **White Paper**: We use good old printer paper for everyday doodles. This ream of [AmazonBasics Multipurpose Copy Printer Paper](https://amzn.to/2YA9AyA) does a decent job. It’s medium weight, bright, and a good value. I don’t know about you but my kid goes through so much white paper.
 
 ![](/assets/Paint & Painting Supplies.png)
@@ -52,9 +52,9 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 4. **Permanent Markers**: I’m sure every parent would say, “are your crazy?” about me saying that you should get these for a kid’s art supplies. Of course, let them use it only with adult supervision. We got these [Crayola Take Note Colored Permanent Marker Set](https://amzn.to/34B76UI) and they work great on a variety of surfaces, e.g. if you want to upcycle that milk jug into some window suncatchers. And they cost a few bucks less than Sharpies brand. Win win. 
 5. **Colored Pencils**: These [Derwent Colored Pencils](https://amzn.to/32sfnYh) are our favorite because the colors are bright and they are water soluble so you can use water to blend colors. And they work on a variety of surfaces. I love double duty art materials. 
 6. **Tempura Paint Sticks**: We first encountered these [Kwik Stix Solid Tempera Paint Sticks](https://amzn.to/3loVmua) at a little buddy’s house and I fell in love with the thick and rich colors. They are short and easy to grip for little hands. Also, they’re low mess and dry so quickly. 
-7. **Washable Markers**: They had me at washable. Crayola simply makes the best markers. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
-8. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
-9. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
+7. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
+8. **Washable Markers**: They had me at washable. Crayola simply makes the best markers. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
+9. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
 ![](/assets/Manipulatives.png)
@@ -62,8 +62,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 ### Manipulatives
 
 1. **Oven Baked Clay**: Sculpey clay is a great way to work on those fine motor skills. Make little figures and shapes then bake them to make a forever keepsake. This [Sculpey Classic Multipack](https://amzn.to/2EHoPi4) has so many colors, it’s a good starter set.  [](https://amzn.to/2EHoPi4)
-2. **Shaving Foam**: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.  
-3. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful. [](https://amzn.to/3lq7LhQ)
+2. **Water Beads**: These [Marvelbeads Water Beads](https://amzn.to/3lq7LhQ) are a sensory bin favorite around here. Squishy and colorful.
+3. **Shaving Foam**: Shaving foam is versatile as a sensory bin type activity and also an art material you can use to make stuff like homemade puffy paint or marble prints. We buy [Gillette Foamy Regular Shaving Foam](https://amzn.to/3lkom6s) in bulk so we always have an easy activity I can pull out for the kid.   [](https://amzn.to/3lq7LhQ)
 4. **Fine Motor Tools**: Scaffold the sensory activitiles with tools that kids can use to cut, mold, shape, etc. We have this set [Learning Resources Helping Hands Fine Motor Tool Set Toy](https://amzn.to/2YAPHHZ) and it yields long periods of uninterrupted play, did you hear that? No? Quiet...ahhhhhhh. [](https://amzn.to/2YAPHHZ)
 
 ![](/assets/Glue, Tape, and Adhesives.png)
@@ -91,10 +91,10 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 9. **Sewing Needles**: I like these [Plastic Yarn Sewing Needle Set](https://amzn.to/2FXDqqp) because they’re large, easy for little hands and safe for kid use. [](https://amzn.to/2FXDqqp)
 10. **Straws**: I cut these [Paper Jumbo Smoothie Straws](https://amzn.to/3gBCx3j) up into small pieces for stringing and making necklaces. Another tried and true kid activity that most kids seem to like. [](https://amzn.to/3gBCx3j)
 11. **Pony Beads**: We use for necklaces. This set of [Pony Beads](https://amzn.to/2Qrwkwj) is a good value with lots of colors.
-12. **Craft Rolls**: I mean, yes of course you can use toilet rolls but these [Craft Rolls](https://amzn.to/3jlDUFp) are sturdier.[](https://amzn.to/3jlDUFp)
-13. **Stamp Pad**: We like this [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0) because it has lots of colors and is all in one large Pad for easy storage. Oh, and it’s washable. Yes. [](https://amzn.to/2El4Qq0)
-14. **Tissue Paper**: Not to be mistaken for regular tissue paper, [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o) does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [](https://amzn.to/3jiHn7o)
-15. **Stencils**: This [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr) was one of the items we got for an activity to do on a camping trip. The stencils are thick and it comes with a storage pouch. A nice portable activity for when you’re out and about. 
+12. **Tissue Paper**: Not to be mistaken for regular tissue paper, [Hygloss Products Bleeding Tissue Assortment](https://amzn.to/3jiHn7o) does amazing things when mixed with water. Leaves the most beautiful hints of color for a watercolor effect. [](https://amzn.to/3jiHn7o)
+13. **Craft Rolls**: I mean, yes of course you can use toilet rolls but these [Craft Rolls](https://amzn.to/3jlDUFp) are sturdier.[](https://amzn.to/3jlDUFp)
+14. **Stencils**: This [Melissa & Doug Stencil Art Coloring Activity Kit](https://amzn.to/3gyEQEr) was one of the items we got for an activity to do on a camping trip. The stencils are thick and it comes with a storage pouch. A nice portable activity for when you’re out and about. 
+15. **Stamp Pad**: We like this [Melissa & Doug Rainbow Stamp Pad](https://amzn.to/2El4Qq0) because it has lots of colors and is all in one large Pad for easy storage. Oh, and it’s washable. Yes. [](https://amzn.to/2El4Qq0)
 16. **Paper Punchers**: We use these [Scrapbook Paper 1 Inch Paper Punches](https://amzn.to/3jpUHqz) to make our own confetti for collages and such. My kid can do it herself because the lever is easy to push. My favorite kind of art supply is one that my kid doesn’t need my help with.  [](https://amzn.to/3jpUHqz)
 
 ![](/assets/Art Storage.png)
@@ -102,8 +102,8 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 ### Art storage
 
 1. **Art Caddy**: We have this [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)  to store art supplies that my kid can move around the house with her. It’s also a good solution for when you have little space. I like that it’s large and colorful. [](https://amzn.to/2G0MGKp)
-2. **Art Cart**: This [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)  is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [](https://amzn.to/2YF0bGg)
-3. **Storage Bins**: I use these  [Interlocking bin Customizable Multi-Purpose Storage ](https://amzn.to/31AhIRI)to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations.
+2. **Storage Bins**: I use these  [Interlocking bin Customizable Multi-Purpose Storage ](https://amzn.to/31AhIRI)to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations.
+3. **Art Cart**: This [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)  is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [](https://amzn.to/2YF0bGg)
 4. **Paper Storage**: These [SimpleHouseware Magazine File Holder Organizer Box ](https://amzn.to/2Qu82C7) are good for storing the millions of different types of paper we have. [](https://amzn.to/2Qu82C7)
 
 If you got this far, I hope this was helpful to you. Check back here to follow my journey in making art with my little human. Catch you later, BYE!
