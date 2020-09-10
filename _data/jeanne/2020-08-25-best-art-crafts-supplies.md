@@ -6,11 +6,11 @@ title: 'The Best Arts & Crafts Supplies for Toddlers to School Age Kids, Part 1'
 metaDescription: ''
 thumbnail: /assets/D9807852-F135-4B4E-9BD0-2ECA337D498E.jpeg
 ---
-Hi! Glad you found us. You are probably here because you have found yourself at some point at the store staring at a million options for art supplies on the shelves and get stuck. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many types of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
+Hi! You are probably here because you have found yourself at some point at the store staring at a million options for art supplies on the shelves. You just want someone to tell you what to get. Well, it’s your lucky day. Here’s a list of arts and crafts materials that we have used and think are great. This is not an exhaustive list as there are so many types of any art medium you can imagine. There definitely will be a Part 2 & 3 of this post but this is a good start. 
 
 ![](/assets/Hero.png)
 
-We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. As with any art supplies there is a suggested age range but I'm always one to think that with some adult supervision most supplies can be used with most kids. Use your best judgement with say permanent markers and stuff of the like.  With that said, let’s get started, shall we?
+We do a lot of art so this stuff definitely holds up to a lot of use by an art obsessed preschooler. I have organized the items in this list into common art supplies categories for easy browsing. These are some basic items to get kids started on open-ended art. As with any art supplies there is a suggested age range but I think that with some adult supervision most supplies can be used with most kids but use your best judgement with say permanent markers and stuff of the like.  With that said, let’s get started, shall we?
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
@@ -106,4 +106,4 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Storage Bins**: I use these to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
 4. **Paper Storage**: These file boxes are good for storing the millions of different types of paper we have. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
 
-If you got this far,I I hope this was helpful to you. And if doing art with your child isn't intuitive or natuarul to you, remember it doesn't take much to  get started. You can start your art supply kit with one item at a time. Check back to folow my journey in making art with my litlte human. Catch you later, BYE!
+If you got this far, I hope this was helpful to you. Check back here to folow my journey in making art with my litlte human. Catch you later, BYE!
