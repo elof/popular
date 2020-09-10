@@ -101,9 +101,9 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 
 ### Art storage
 
-1. **Art Caddy**: We have this to store art supplies that my kid can move around the house with her. It’s also a good solution for when you have little space. I like that it’s large and colorful. [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)
-2. **Art Cart**: This art cart is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)
-3. **Storage Bins**: I use these to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations. [Interlocking bin Customizable Multi-Purpose Storage](https://amzn.to/31AhIRI)
-4. **Paper Storage**: These file boxes are good for storing the millions of different types of paper we have. [SimpleHouseware Magazine File Holder Organizer Box](https://amzn.to/2Qu82C7)
+1. **Art Caddy**: We have this [Learning Resources Create-a-Space Storage Center](https://amzn.to/2G0MGKp)  to store art supplies that my kid can move around the house with her. It’s also a good solution for when you have little space. I like that it’s large and colorful. [](https://amzn.to/2G0MGKp)
+2. **Art Cart**: This [Honey-Can-Do Rolling Storage Cart and Organizer](https://amzn.to/2YF0bGg)  is home to all the stuff that doesn’t fit in the smaller art cart in my kid’s room. I like the two different sized storage. For the price it’s works ok. [](https://amzn.to/2YF0bGg)
+3. **Storage Bins**: I use these  [Interlocking bin Customizable Multi-Purpose Storage ](https://amzn.to/31AhIRI)to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations.
+4. **Paper Storage**: These [SimpleHouseware Magazine File Holder Organizer Box ](https://amzn.to/2Qu82C7) are good for storing the millions of different types of paper we have. [](https://amzn.to/2Qu82C7)
 
 If you got this far, I hope this was helpful to you. Check back here to folow my journey in making art with my litlte human. Catch you later, BYE!
