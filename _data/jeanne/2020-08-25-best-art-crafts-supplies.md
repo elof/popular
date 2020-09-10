@@ -106,4 +106,4 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 3. **Storage Bins**: I use these  [Interlocking bin Customizable Multi-Purpose Storage ](https://amzn.to/31AhIRI)to separate all the art stuff in her little art cart that’s in her room. I like that they interlock and you can rearrange them in different configurations.
 4. **Paper Storage**: These [SimpleHouseware Magazine File Holder Organizer Box ](https://amzn.to/2Qu82C7) are good for storing the millions of different types of paper we have. [](https://amzn.to/2Qu82C7)
 
-If you got this far, I hope this was helpful to you. Check back here to folow my journey in making art with my litlte human. Catch you later, BYE!
+If you got this far, I hope this was helpful to you. Check back here to folow my journey in making art with my little human. Catch you later, BYE!
