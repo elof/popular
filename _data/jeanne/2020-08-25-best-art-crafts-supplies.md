@@ -54,7 +54,7 @@ We do a lot of art so this stuff definitely holds up to a lot of use by an art o
 6. **Tempura Paint Sticks**: We first encountered these [Kwik Stix Solid Tempera Paint Sticks](https://amzn.to/3loVmua) at a little buddy’s house and I fell in love with the thick and rich colors. They are short and easy to grip for little hands. Also, they’re low mess and dry so quickly. 
 7. **Sidewalk Chalk**: I love these [Crayola 24 Count Sidewalk Chalk](https://amzn.to/2QrzS1F) they just have so much color payoff. We’ve used so many different types of sidewalk chalk and this is the best one hands down.  [](https://amzn.to/2QrzS1F)
 8. **Washable Markers**: They had me at washable. Crayola simply makes the best markers. These [Crayola Ultra-Clean Washable Markers](https://amzn.to/2QtfE7G) really do wash out every time. Because I don’t know about you but I’ve had “washable” markers not come out before. So, rest assured this does! Yay. 
-9. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice a fat for easy gripping and the sponge dauber is durable. And they last forever. 
+9. **Dabbing Markers**: These [Do A Dot Art! Markers](https://amzn.to/34yTHfO) were one of my kid’s first art supplies. They’re nice and fat for easy gripping and the sponge dauber is durable. And they last forever. 
 10. **Crayons**: These [Ooly Easy to Hold Crayon](https://amzn.to/2D5VTA1) are cool not only because they color well but they’re ergonomically correct. So great for little ones but also a fun shape suitable for older kids too.  [](https://amzn.to/2D5VTA1)
 
 ![](/assets/Manipulatives.png)
