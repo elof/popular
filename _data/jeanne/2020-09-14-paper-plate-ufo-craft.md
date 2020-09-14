@@ -18,7 +18,7 @@ Space themed art is always so much fun. And with Halloween just around the corne
 * 1” pom poms (we made our own with this pom pom maker but store bought is fine)
 * acrylic gems
 
-### Steps
+### How to make your UFOs: 
 
 1. Turn plate over and use with silver paint to cover entire bottom of plate. No need to paint the top because they’re not going to be showing. Let it dry before moving onto next step. 
 
