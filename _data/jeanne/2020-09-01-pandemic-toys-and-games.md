@@ -15,7 +15,7 @@ So, I present to you my pandemic toy, game, and activity haul. So you don’t th
 
 This isn‘t a list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
 
-### Toys, games, and miscellaneous
+### Toys, games, books, and miscellaneous
 
 1. Blocks: We love these [Guidecraft Jr. Rainbow Blocks](https://amzn.to/34PWRMj). My kid never really got into building with blocks but she liked these at the library so when her birthday came up, we put this on her wishlist. The set is small but you can build quite a few things with it. They’re especially fun because they have transparent color in the middle of the block. My kid likes to hold it up to her eyes as “glasses”. Not its intended use but she’s playing with it!  [](https://amzn.to/34PWRMj)
 2. Puzzles: Mudpuppy puzzles graphics are adorable. Some of these are shaped which make them doubly adorable. We have the ones listed below.
