@@ -11,7 +11,9 @@ She lamented on and on about how she missed her friends. So, I went on a bit of 
 
 So, I present to you my pandemic toy, game, and activity haul. So you don’t think l’m a crazy shopaholic, these items were accumulated over a 6 month period of time. A few of these items were  birthday gifts but since it was during the shelter in place, I’ve included them in this post. 
 
-This isn‘t a spectacular list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
+This isn‘t a list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
+
+
 
 ### Toys, games, and miscellaneous
 
@@ -29,4 +31,4 @@ This isn‘t a spectacular list of the best of the best but my kid liked this st
 7. Pattern Blocks: These [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR) are much cooler than solid pattern blocks and they go so well with the light box. [](https://amzn.to/2Qrw2FR)
 8. Non-messy Coloring Pad: This [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1) is probably a standard for most kids. My kid likes it because it’s ”magic”. [](https://amzn.to/3ljAyo1)
 9. In this [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd) set you get premade plastic designs. It comes with cool looking puffy paint that dries transparent. An easky way that you can paint your own suncatchers. 
-10. Giant Bubbles: These [WOWMAZING Giant Bubble Refill Powder Mix](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap and water.  [](https://amzn.to/34zG2oC)
+10. Giant Bubbles: These [WOWMAZING Giant Bubble Kit](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap and water.  [](https://amzn.to/34zG2oC)
