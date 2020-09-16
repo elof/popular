@@ -18,7 +18,7 @@ This isn‘t a list of the best of the best but my kid liked this stuff and cont
 ### Toys & games
 
 1. Blocks: We love these [Guidecraft Jr. Rainbow Blocks](https://amzn.to/34PWRMj). My kid never really got into building withregular wooden blocks but she liked these at the library so when her birthday came up, we put this on her wishlist. The set is small but you can build quite a few things with it. They’re especially fun because they have colorful transparent panel in the middle of the block. My kid likes to hold it up to her eyes as “glasses”. Not its intended use but she’s playing with it!  [](https://amzn.to/34PWRMj)
-2. Puzzles: Mudpuppy puzzles graphics are adorable. Some of these are shaped which make them doubly adorable. We also got a few other table puzzles. We have mama & kiddo puzzle time where we each do our own puzzles. I love it. We have the ones listed below.
+2. Puzzles: I’m a sucker for non-gaudy puzzle graphics. Some of these are shaped which make them doubly adorable. We have mama & kiddo puzzle time where we each do our own puzzles. I love it. We have the ones listed below.
 
    * [Mudpuppy Fire Truck Shaped Mini Puzzle](https://amzn.to/2YTIZN8)
    * [Mudpuppy Rainbow Lion Shaped Mini Puzzle](https://amzn.to/3lCA2l6)
