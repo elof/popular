@@ -15,7 +15,7 @@ So, I present to you my pandemic toy, game, and activity haul. So you don’t th
 
 This isn‘t a list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
 
-### Toys, games, books, and miscellaneous
+### Toys & games
 
 1. Blocks: We love these [Guidecraft Jr. Rainbow Blocks](https://amzn.to/34PWRMj). My kid never really got into building with blocks but she liked these at the library so when her birthday came up, we put this on her wishlist. The set is small but you can build quite a few things with it. They’re especially fun because they have transparent color in the middle of the block. My kid likes to hold it up to her eyes as “glasses”. Not its intended use but she’s playing with it!  [](https://amzn.to/34PWRMj)
 2. Puzzles: Mudpuppy puzzles graphics are adorable. Some of these are shaped which make them doubly adorable. We have the ones listed below.
@@ -24,6 +24,7 @@ This isn‘t a list of the best of the best but my kid liked this stuff and cont
    * [Mudpuppy Rainbow Lion Shaped Mini Puzzle](https://amzn.to/3lCA2l6)
    * [Mudpuppy Panther Chameleon Mini Puzzle](https://amzn.to/3lE23Zx)
    * [Mudpuppy Tyrannosaurus Rex Mini Puzzle](https://amzn.to/3lD6tA7)
+   * Andy Warhol Wood Puzzle Set 
 3. Educational Electronic Games: This [Square Panda Multisensory Phonics Playset](https://amzn.to/3jxwjU4) was recommended by a mom on a parent app and my kid loves it because it’s interactive with interchangeable letters that you place on a board. The games are fun with adorable characters. And I actually think she’s learning how to read from it.  [](https://amzn.to/3jxwjU4)
 4. Art kits: While I usually piece meal our kid art activities, sometimes mama is tired so I pull out one of these [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A) kits where my kid can work independently. 
 5. Jewelry Stand: This [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia) was a birthday gift and I love it because it’s such a fun alternative to a music jewelry box. And it’s LEGO! [](https://amzn.to/3hsc2ia)
@@ -32,3 +33,28 @@ This isn‘t a list of the best of the best but my kid liked this stuff and cont
 8. Non-messy Coloring Pad: This [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1) is probably a standard for most kids. My kid likes it because it’s ”magic”. [](https://amzn.to/3ljAyo1)
 9. In this [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd) set you get premade plastic designs. It comes with cool looking puffy paint that dries transparent. An easky way that you can paint your own suncatchers. 
 10. Giant Bubbles: These [WOWMAZING Giant Bubble Kit](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap and water.  [](https://amzn.to/34zG2oC)
+11. Tiny Polka Dot
+12. Melissa & Doug See and Spell
+13. Garden Building Toy
+
+### Books
+
+1. An ABC of Equality
+2. How Do You Dance
+3. The Word Collector
+4. M Is for Melanin: A Celebration of the Black Child
+5. The Day You Begin
+6. Just Add Glitter
+
+
+
+###  Miscellaneous  
+
+1. Dramatic play/Dress up:
+
+   * Dazzler Ribbon
+   * Butterfly Wings
+   * Dragon Cape
+   * Elsa Jelly Shoes
+2. Balance Board: Kinderfeet
+3. Trampoline
