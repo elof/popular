@@ -39,26 +39,26 @@ I tried to get more of the activities that she like but also some educational to
 8. Non-messy Coloring Pad: This [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1) is probably a standard for most kids. My kid likes it because it’s ”magic”. [](https://amzn.to/3ljAyo1)
 9. Window Suncatchers: In this [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd) set you get premade plastic designs. It comes with cool looking puffy paint that dries transparent. An easky way that you can paint your own suncatchers. 
 10. Giant Bubbles: These [WOWMAZING Giant Bubble Kit](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap and water.  [](https://amzn.to/34zG2oC)
-11. Educational Card Game: [Tiny Polka Dot](https://amzn.to/32CpiMo)
-12. Reading/Alphabet Game: [Melissa & Doug See and Spell](https://amzn.to/3muKWd6)
-13. Fine Motor Toys: [GILI Flower Garden Building Toys](https://amzn.to/300GgCr)
+11. Educational Card Game: This cool counting card deck [Tiny Polka Dot](https://amzn.to/32CpiMo) comes with a insturctions on how to play a bunch of games that teach counting and early math. [](https://amzn.to/32CpiMo)
+12. Reading/Alphabet Game: My kid likes puzzles and she likes those educational reading game apps. And let's be real, kiddo was already watching 2 hours of shows/movies. I needed a way to reduce screen time and this [Melissa & Doug See and Spell](https://amzn.to/3muKWd6) has been a hit. However, I do with they had extra packs of words since there's only a dozen. This may be a toy that only lasts for a season but it was worth it.  [](https://amzn.to/3muKWd6)
+13. Fine Motor Toys: This [GILI Flower Garden Building Toys](https://amzn.to/300GgCr) was a gift and it's one of those toys that is simple but that's the part that makes them so great. They're colorful, sturdy construction, and there's so many configurations for different types of flowers. Confession: I play with them too. 
 
 ### Books
 
 A mixture of racial diverse books and whimsical books that are beautifully illustrated and have wonderful messages of acceptance and perseverance.
 
-1. [An ABC of Equality](https://amzn.to/2ZIvmRv)
-2. [How Do You Dance](https://amzn.to/2RAcVKa)
-3. [The Word Collector](https://amzn.to/2FI8Dhc)
-4. [M Is for Melanin: A Celebration of the Black Child](https://amzn.to/2RzZqKI)
-5. [The Day You Begin](https://amzn.to/3hy1QUt)
-6. [Just Add Glitter](https://amzn.to/3c3IbL4)
+1. [An ABC of Equality](https://amzn.to/2ZIvmRv) by Chana Ginelle Ewing, Paulina Morgan
+2. [How Do You Dance](https://amzn.to/2RAcVKa) by Thyra Heder
+3. [The Word Collector](https://amzn.to/2FI8Dhc) by Peter H. Reynolds
+4. [M Is for Melanin: A Celebration of the Black Child](https://amzn.to/2RzZqKI) by Tiffany Rose
+5. [The Day You Begin](https://amzn.to/3hy1QUt) by Jacqueline Woodson, Rafael López
+6. [Just Add Glitter](https://amzn.to/3c3IbL4) by Angela DiTerlizzi, Samantha Cotterill
 
 ### Miscellaneous
 
-Lastly, I wanted kiddo to have non-fussy fun. Nothing like playing pretend and getting some movement in to elevate pos moods.
+Lastly, I wanted kiddo to have non-fussy fun. Nothing like playing pretend and getting some movement in to elevate positive mood.
 
-1. Dramatic play/Dress up: My kid loves imaginative play more than anything else. So, I beefed up her Selection costumes and accessories with these items.
+1. Dramatic play/Dress up: My kid loves imaginative play more than anything else. So, I beefed up her selection costumes and accessories with these items.
 
    * [Dazzler Ribbon](https://amzn.to/2E754ke)
    * [Butterfly Wings](https://amzn.to/2FzaJjG)
