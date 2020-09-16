@@ -17,6 +17,8 @@ This isn‘t a list of the best of the best but my kid liked this stuff and cont
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related.
 
+![](/assets/Toys & Games.png)
+
 ### Toys & games
 
 I tried to get more of the activities that she like but also some educational toys and games to keep up some “academics” while school was closed.
@@ -42,6 +44,10 @@ I tried to get more of the activities that she like but also some educational to
 11. Educational Card Game: This cool counting card deck [Tiny Polka Dot](https://amzn.to/32CpiMo) comes with a insturctions on how to play a bunch of games that teach counting and early math. [](https://amzn.to/32CpiMo)
 12. Reading/Alphabet Game: My kid likes puzzles and she likes those educational reading game apps. And let's be real, kiddo was already watching 2 hours of shows/movies. I needed a way to reduce screen time and this [Melissa & Doug See and Spell](https://amzn.to/3muKWd6) has been a hit. However, I do with they had extra packs of words since there's only a dozen. This may be a toy that only lasts for a season but it was worth it.  [](https://amzn.to/3muKWd6)
 13. Fine Motor Toys: This [GILI Flower Garden Building Toys](https://amzn.to/300GgCr) was a gift and it's one of those toys that is simple but that's the part that makes them so great. They're colorful, sturdy construction, and there's so many configurations for different types of flowers. Confession: I play with them too. 
+
+
+
+![](/assets/Books.png)
 
 ### Books
 
