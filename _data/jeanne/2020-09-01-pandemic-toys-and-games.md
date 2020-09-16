@@ -45,8 +45,6 @@ I tried to get more of the activities that she like but also some educational to
 12. Reading/Alphabet Game: My kid likes puzzles and she likes those educational reading game apps. And let's be real, kiddo was already watching 2 hours of shows/movies. I needed a way to reduce screen time and this [Melissa & Doug See and Spell](https://amzn.to/3muKWd6) has been a hit. However, I do with they had extra packs of words since there's only a dozen. This may be a toy that only lasts for a season but it was worth it.  [](https://amzn.to/3muKWd6)
 13. Fine Motor Toys: This [GILI Flower Garden Building Toys](https://amzn.to/300GgCr) was a gift and it's one of those toys that is simple but that's the part that makes them so great. They're colorful, sturdy construction, and there's so many configurations for different types of flowers. Confession: I play with them too. 
 
-
-
 ![](/assets/Books.png)
 
 ### Books
@@ -59,6 +57,10 @@ A mixture of racial diverse books and whimsical books that are beautifully illus
 4. [M Is for Melanin: A Celebration of the Black Child](https://amzn.to/2RzZqKI) by Tiffany Rose
 5. [The Day You Begin](https://amzn.to/3hy1QUt) by Jacqueline Woodson, Rafael López
 6. [Just Add Glitter](https://amzn.to/3c3IbL4) by Angela DiTerlizzi, Samantha Cotterill
+
+
+
+![](/assets/Dramaticplay.png)
 
 ### Miscellaneous
 
