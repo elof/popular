@@ -45,7 +45,7 @@ I tried to get more of the activities that she like but also some educational to
 
 A mixture of racial diverse books and whimsical books that are beautifully illustrated and have wonderful messages of acceptance and perseverance.
 
-1. An ABC of Equality
+1. [An ABC of Equality](https://amzn.to/2ZIvmRv)
 2. How Do You Dance
 3. The Word Collector
 4. M Is for Melanin: A Celebration of the Black Child
