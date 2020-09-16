@@ -58,8 +58,6 @@ A mixture of racial diverse books and whimsical books that are beautifully illus
 5. [The Day You Begin](https://amzn.to/3hy1QUt) by Jacqueline Woodson, Rafael López
 6. [Just Add Glitter](https://amzn.to/3c3IbL4) by Angela DiTerlizzi, Samantha Cotterill
 
-
-
 ![](/assets/Dramaticplay.png)
 
 ### Miscellaneous
@@ -74,3 +72,5 @@ Lastly, I wanted kiddo to have non-fussy fun. Nothing like playing pretend and g
    * [Elsa Jelly Shoes](https://amzn.to/3hDUIpQ)
 2. Balance Board: This [Kinderfeet Balance board](https://amzn.to/2ZJEjKu) was something I wanted to add as a way help get the wiggles and angst out while indoors. My kid has used it as a slide, seesaw, and put a pillow on it to make it a ”bed”. Luckily, grandpa got it as a present for her birthday because it’s quite pricey but I think it’s worth it. It’s solid wood.
 3. Trampoline: This [](https://amzn.to/2ZIvmRv)[ATIVAFIT 36-Inch Folding Trampoline](https://amzn.to/2ZIvmRv) was an impulse buy has more than paid for itself with the amount of use it has gotten. This was is nice and sturdy. Not truly foldable, you have to remove cover to break it down, but for us not a deal breaker.
+
+Well, that's all I got folks. Have fun and stay safe!
