@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /pandemic-toys-and-games
-date: 2020-09-01T17:33:14.596Z
+date: 2020-09-16T17:33:00.000Z
 title: 'Our Pandemic Survival Kit '
 metaDescription: And by that I mean alll the crap I bought my kid while school was closed
 thumbnail: ''
