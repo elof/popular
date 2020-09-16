@@ -11,7 +11,7 @@ She lamented on and on about how she missed her friends. So, I went on a bit of 
 
 ![](/assets/Pandemic survival kit.png)
 
-So, I present to you my pandemic toy, game, and activity haul. So you don’t think l’m a crazy shopaholic, these items were accumulated over a 6 month period of time. A few of these items were birthday gifts but since it was during the shelter in place, I’ve included them in this post. 
+So, I present to you my pandemic toy, game, and book haul. So you don’t think l’m a crazy shopaholic, these items were accumulated over a 6 month period of time. A few of these items were birthday gifts but since it was during the shelter in place, I’ve included them in this post. 
 
 This isn‘t a list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
 
