@@ -15,6 +15,8 @@ So, I present to you my pandemic toy, game, and book haul. So you don’t think 
 
 This isn‘t a list of the best of the best but my kid liked this stuff and continues to play with it today eventhough she’s been back to school for a month now. All I know that this kid better not say she’s bored every again. 
 
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related.
+
 ### Toys & games
 
 I tried to get more of the activities that she like but also some educational toys and games to keep up some “academics” while school was closed.
