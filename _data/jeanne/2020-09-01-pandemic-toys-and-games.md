@@ -4,8 +4,10 @@ path: /pandemic-toys-and-games
 date: 2020-09-01T17:33:14.596Z
 title: 'Our Pandemic Survival Kit '
 metaDescription: And by that I mean alll the crap I bought my kid while school was closed
-thumbnail: /assets/edwin-hooper-Q8m8cLkryeo-unsplash.jpg
+thumbnail: ''
 ---
+![](/assets/edwin-hooper-Q8m8cLkryeo-unsplash.jpg)
+
 So I don’t know about you but when my kid’s preschool announced immediate closure due to COVID in March, my gut reaction was a four letter expletive. At this point, she had been in school for nearly 2 years full time. What in the world were we going to do at home? There was simply too much time and not enough to do. I figured a little toy refresh was in order because these are weird times. The usual new toys only on birthdays and Christmas rule went out the door. 
 
 She lamented on and on about how she missed her friends. So, I went on a bit of a spending spree and got her some new stuff that would give her some focused activity and a pick me up. Let’s be real, little kids have short attention spans and I wasn’t expecting hours and hours of independent play but I was hoping for enough time to drink my coffee warm or do a little social media browsing. 
