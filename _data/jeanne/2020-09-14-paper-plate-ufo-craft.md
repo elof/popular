@@ -10,8 +10,8 @@ Space themed art is always so much fun. And with Halloween just around the corne
 
 * paper plates
 * [clear plastic cups](https://amzn.to/2ZJts32)
-* silver paint
-* paintbrush
+* [silver paint](https://amzn.to/3c2GvBF)
+* [paintbrush](https://amzn.to/2EADITt)
 * [tacky glue](https://amzn.to/32sev5X)
 * googly eyes
 * pipe cleaners
@@ -30,7 +30,7 @@ Space themed art is always so much fun. And with Halloween just around the corne
 
 ![](/assets/IMG_8626 2.jpeg)
 
-3.  Next we’re moving onto to making our little alien that is going to pilot this ship. Glue the googly eyes to your pom pom. We made our own with a pom pom maker but feel free to use store bought. Cut a 1” long pipe cleaner 2x to make the antennae then glue onto pom pom. 
+3. Next we’re moving onto to making our little alien that is going to pilot this ship. Glue the googly eyes to your pom pom. We made our own with a pom pom maker but feel free to use store bought. Cut a 1” long pipe cleaner 2x to make the antennae then glue onto pom pom. 
 
 ![](/assets/IMG_8622.jpeg)
 
