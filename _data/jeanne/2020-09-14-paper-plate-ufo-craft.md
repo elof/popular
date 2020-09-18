@@ -15,8 +15,8 @@ Space themed art is always so much fun. And with Halloween just around the corne
 * [tacky glue](https://amzn.to/32sev5X)
 * googly eyes
 * pipe cleaners
-* 1” pom poms (we made our own with this pom pom maker but store bought is fine)
-* acrylic gems
+* 1” pom poms (we made our own with this [pom pom maker](https://www.amazon.com/gp/product/B07KYJGS2M/ref=as_li_qf_asin_il_tl?ie=UTF8&tag=jeanne-af-20&creative=9325&linkCode=as2&creativeASIN=B07KYJGS2M&linkId=8d1cf6749aecc370508b550209cdfdf4) but store bought is fine)
+* [acrylic gems](https://www.michaels.com/creatology-acrylic-gems-large-assorted/10475566.html)
 
 ### How to make your UFOs:
 
