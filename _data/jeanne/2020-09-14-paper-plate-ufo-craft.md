@@ -47,7 +47,7 @@ Space themed art is always so much fun. And with Halloween just around the corne
 
 ![](/assets/IMG_8613.jpeg)
 
-6. And tada! You have yourself an out of this world UFO. Here's some more pictures of our finished ones. 
+6. And tada! You have yourself a UFO craft that is out of this world. Here's some more pictures of our finished ones. 
 
 ![](/assets/IMG_8632.jpeg)
 
