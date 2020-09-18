@@ -3,6 +3,7 @@ template: BlogPost
 path: /paper-plate-ufo-craft
 date: 2020-09-17T16:59:00.000Z
 title: Paper Plate UFO Craft
+thumbnail: /assets/jeremy-thomas-E0AHdsENmDg-unsplash.jpg
 ---
 Space themed art is always so much fun. And with Halloween just around the corner. This can be part of your spooky decor. This is a multi-step art activity that is sure to keep your kids engaged.. You probably have many of the supplies to make it. If not, they are easy to get items from any store. Have a blast making this adorable craft.
 
