@@ -7,6 +7,8 @@ thumbnail: /assets/jeremy-thomas-E0AHdsENmDg-unsplash.jpg
 ---
 Space themed art is always so much fun. And with Halloween just around the corner. This can be part of your spooky decor. This is a multi-step art activity that is sure to keep your kids engaged.. You probably have many of the supplies to make it. If not, they are easy to get items from any store. Have a blast making this adorable craft.
 
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
 ### Supplies:
 
 * paper plates
