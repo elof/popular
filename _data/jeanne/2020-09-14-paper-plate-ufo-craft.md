@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /paper-plate-ufo-craft
-date: 2020-09-17T16:59:00.000Z
+date: 2020-09-18T16:59:00.000Z
 title: Paper Plate UFO Craft
 thumbnail: /assets/jeremy-thomas-E0AHdsENmDg-unsplash.jpg
 ---
