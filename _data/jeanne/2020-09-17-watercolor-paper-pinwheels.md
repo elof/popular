@@ -47,6 +47,8 @@ Now use your hole punch and make a hole where you can string ribbon to hang up y
 
 ![](/assets/IMG_8783.jpeg)
 
-![]()
+![](/assets/IMG_8784.jpeg)
+
+And here she is. So easy to make and looks wonderful hanging in a doorway or in your window 
 
 ![](/assets/IMG_8786.jpeg)
