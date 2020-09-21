@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /watercolor-paper-pinwheels
-date: 2020-09-17T20:29:17.740Z
+date: 2020-09-21T20:29:17.740Z
 title: Watercolor Paper Pinwheels
 thumbnail: /assets/geordanna-cordero-5NE6mX0WVfQ-unsplash.jpg
 ---
