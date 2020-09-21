@@ -11,9 +11,9 @@ I saw this idea on one of my favorite kid art blogs [Art Bar](https://www.artbar
 
 ### Supplies needed:
 
-* Watercolor paper or mixed media paper
+* Watercolor paper or [mixed media paper](https://amzn.to/3gBpLSp)
 * Stapler/Staples
-* Any watercolors you have on hand (we used this liquid watercolor set and this ikea watercolor palette)
+* Any watercolors you have on hand (we used this liquid watercolor set and this [ikea watercolor palette](https://www.ikea.com/us/en/p/mala-watercolor-box-mixed-colors-assorted-colors-20193267/))
 * Hole punch
 * Ribbon
 
