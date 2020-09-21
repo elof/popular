@@ -9,9 +9,9 @@ I saw this idea on one of my favorite kid art blogs [Art Bar](https://www.artbar
 
 ### Supplies needed:
 
-* Watercolor paper or paper from your mixed media pad
+* Watercolor paper or mixed media paper
 * Stapler/Staples
-* Liquid watercolors
+* Any watercolors you have on hand (we used this liquid watercolor set and this ikea watercolor palette)
 * Hole punch
 * Ribbon
 
