@@ -43,7 +43,7 @@ We tried painting some with watercolor pans which yielded a paler effect but sti
 
 ![](/assets/IMG_4519.jpeg)
 
-Now use your hole punch and make a hole where you can string ribbon to hang up your colorful creation.
+Now use your hole punch and make a hole where you can string ribbon to hang up your pinwheel.
 
 ![](/assets/IMG_8783.jpeg)
 
@@ -52,3 +52,5 @@ Now use your hole punch and make a hole where you can string ribbon to hang up y
 And here she is. So easy to make and looks wonderful hanging in a doorway or in your window 
 
 ![](/assets/IMG_8786.jpeg)
+
+Be sure to follow along in the future for more fun with art. Bye!
