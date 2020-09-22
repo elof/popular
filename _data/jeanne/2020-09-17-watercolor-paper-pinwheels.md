@@ -7,6 +7,8 @@ thumbnail: /assets/geordanna-cordero-5NE6mX0WVfQ-unsplash.jpg
 ---
 I saw this idea on one of my favorite kid art blogs [Art Bar](https://www.artbarblog.com/watercolor-paper-pinwheels/) and knew that kiddo and I had to try it. Watercolors are just so pretty and pinwheels remind me of party decor aka happy times. Overall, this was a good activity for my kid. Usually I try to involve my little in as much of the making process as possible, but she had a bit of trouble folding so I did most of it. Instead of glueing the fans together we opted to staple them. Kiddo helped staple and paint her pinwheels solo so it was a good semi-process art type of craft in the end. 
 
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
 ![](/assets/How to Make The Pinwheel.png)
 
 ### Supplies needed:
