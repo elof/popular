@@ -33,16 +33,16 @@ I tried to get more of the activities that she like but also some educational to
    * [Playhouse Assorted Donuts 24-Piece Die Cut Shaped Mini Puzzle](https://amzn.to/35JMIkz)
    * [Playhouse Tabby Kitten 25-Piece Die-Cut Shaped Mini Puzzle](https://amzn.to/3hE098f)
 3. **Educational Electronic Games**: This [Square Panda Multisensory Phonics Playset](https://amzn.to/3jxwjU4) was recommended by a mom on a parent app I use and my kid loves it because it’s interactive with interchangeable letters that you place on a board. The games are fun with adorable characters. And I actually think she’s learning how to read from it.  [](https://amzn.to/3jxwjU4)
-4. Art Kits: While I usually piece meal our kid art activities, sometimes mama is tired so I pulled out one of these [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A) kits where my kid can work independently. 
-5. Jewelry Stand: This [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia) was a birthday gift and I love it because it’s such a fun alternative to a music jewelry box. And it’s LEGO! [](https://amzn.to/3hsc2ia)
-6. Light Box: This [LED Light Box for Tracing](https://amzn.to/2YEH6E9) was another birthday gift. I put it on kiddo’s wishlist because it’s something that we both can use. I use it for tracing drawings onto watercolor paper. She does tracing on it too but it also doubles as a cheaper alternative to a traditional light box which sometimes is $$$. [](https://amzn.to/2YEH6E9)
-7. Pattern Blocks: These [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR) are much cooler than solid pattern blocks and they go so well with the light box. [](https://amzn.to/2Qrw2FR)
-8. Non-messy Coloring Pad: This [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1) is probably a standard for most kids. Painting with water is ”magic”. [](https://amzn.to/3ljAyo1)
-9. Window Suncatchers: In this [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd) set you get premade plastic designs. It comes with cool looking puffy paint that dries transparent. An easky way that you can paint your own suncatchers. 
-10. Giant Bubbles: These [WOWMAZING Giant Bubble Kit](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap, and water.  [](https://amzn.to/34zG2oC)
-11. Educational Card Game: This cool counting card deck [Tiny Polka Dot](https://amzn.to/32CpiMo) comes with a insturctions on how to play a bunch of games that teach counting and early math. [](https://amzn.to/32CpiMo)
-12. Reading/Alphabet Game: My kid likes puzzles and she likes those educational reading game apps. And let's be real, kiddo was already watching 2 hours of shows/movies. I needed a way to reduce screen time and this [Melissa & Doug See and Spell](https://amzn.to/3muKWd6) has been a hit. However, I do wish they had extra packs of words since there's only about a dozen. This may be a toy that only lasts for a season but it was worth it for the use we got out of it.  [](https://amzn.to/3muKWd6)
-13. Fine Motor Toys: This [GILI Flower Garden Building Toys](https://amzn.to/300GgCr) was a gift and it's one of those toys that is simple but that's the part that makes them so great. They're colorful, sturdy construction, and there's so many configurations for different types of flowers. Confession: I play with them too. 
+4. **Art Kits**: While I usually piece meal our kid art activities, sometimes mama is tired so I pulled out one of these [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A) kits where my kid can work independently. 
+5. **Jewelry Stand**: This [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia) was a birthday gift and I love it because it’s such a fun alternative to a music jewelry box. And it’s LEGO! [](https://amzn.to/3hsc2ia)
+6. **Light Box**: This [LED Light Box for Tracing](https://amzn.to/2YEH6E9) was another birthday gift. I put it on kiddo’s wishlist because it’s something that we both can use. I use it for tracing drawings onto watercolor paper. She does tracing on it too but it also doubles as a cheaper alternative to a traditional light box which sometimes is $$$. [](https://amzn.to/2YEH6E9)
+7. **Pattern Blocks**: These [Constructive Playthings Toys Translucent Pattern Blocks](https://amzn.to/2Qrw2FR) are much cooler than solid pattern blocks and they go so well with the light box. [](https://amzn.to/2Qrw2FR)
+8. **Non-messy Coloring Pad**: This [Melissa & Doug Water Wow](https://amzn.to/3ljAyo1) is probably a standard for most kids. Painting with water is ”magic”. [](https://amzn.to/3ljAyo1)
+9. **Window Suncatchers**: In this [Made By Me Create Your Own Window Art](https://amzn.to/3lnMntd) set you get premade plastic designs. It comes with cool looking puffy paint that dries transparent. An easky way that you can paint your own suncatchers. 
+10. **Giant Bubbles**: These [WOWMAZING Giant Bubble Kit](https://amzn.to/34zG2oC) bubbles are super thick and get so big! I’ve had neighbors 3-4 blocks away tell us they saw our giant bubbles floating in the sky. All you need is a bucket, some dishsoap, and water.  [](https://amzn.to/34zG2oC)
+11. **Educational Card Game**: This cool counting card deck [Tiny Polka Dot](https://amzn.to/32CpiMo) comes with a insturctions on how to play a bunch of games that teach counting and early math. [](https://amzn.to/32CpiMo)
+12. **Reading/Alphabet Game**: My kid likes puzzles and she likes those educational reading game apps. And let's be real, kiddo was already watching 2 hours of shows/movies. I needed a way to reduce screen time and this [Melissa & Doug See and Spell](https://amzn.to/3muKWd6) has been a hit. However, I do wish they had extra packs of words since there's only about a dozen. This may be a toy that only lasts for a season but it was worth it for the use we got out of it.  [](https://amzn.to/3muKWd6)
+13. **Fine Motor Toys**: This [GILI Flower Garden Building Toys](https://amzn.to/300GgCr) was a gift and it's one of those toys that is simple but that's the part that makes them so great. They're colorful, sturdy construction, and there's so many configurations for different types of flowers. Confession: I play with them too. 
 
 ![](/assets/Books.png)
 
@@ -63,13 +63,13 @@ A mixture of racial diverse books and whimsical books that are beautifully illus
 
 Lastly, I wanted kiddo to have non-fussy fun. Nothing like playing pretend and getting some movement to elevate positive mood.
 
-1. Dramatic play/Dress up: My kid loves imaginative play more than anything else. So, I beefed up her selection costumes and accessories with these items.
+1. **Dramatic play/Dress up**: My kid loves imaginative play more than anything else. So, I beefed up her selection costumes and accessories with these items.
 
    * [Dazzler Ribbon](https://amzn.to/2E754ke)
    * [Butterfly Wings](https://amzn.to/2FzaJjG)
    * [Dragon Cape](https://amzn.to/2FKlzTG)
    * [Elsa Jelly Shoes](https://amzn.to/3hDUIpQ)
-2. Balance Board: This [Kinderfeet Balance board](https://amzn.to/2ZJEjKu) was something I wanted to get as a way help get the wiggles and angst out while indoors. My kid has used it as a slide, seesaw, and put a pillow on it to make it a ”bed”. Luckily, grandpa got it as a present for her birthday because it’s quite pricey but I think it’s worth it because it's open ended. Also, it’s solid good quality wood.
-3. Trampoline: This [](https://amzn.to/2ZIvmRv)[ATIVAFIT 36-Inch Folding Trampoline](https://amzn.to/2ZIvmRv) was an impulse buy and has more than paid for itself with the amount of use it has gotten. Not truly foldable, you have to remove cover to break it down, but for us not a deal breaker.
+2. **Balance Board**: This [Kinderfeet Balance board](https://amzn.to/2ZJEjKu) was something I wanted to get as a way help get the wiggles and angst out while indoors. My kid has used it as a slide, seesaw, and put a pillow on it to make it a ”bed”. Luckily, grandpa got it as a present for her birthday because it’s quite pricey but I think it’s worth it because it's open ended. Also, it’s solid good quality wood.
+3. **Trampoline**: This [](https://amzn.to/2ZIvmRv)[ATIVAFIT 36-Inch Folding Trampoline](https://amzn.to/2ZIvmRv) was an impulse buy and has more than paid for itself with the amount of use it has gotten. Not truly foldable, you have to remove cover to break it down, but for us not a deal breaker.
 
 Well, that's all I got folks. Have fun and stay safe!
