@@ -27,7 +27,7 @@ const JeannePage = ({
         <div className="author-introduction">
           <h2>Jeanne</h2>
           <p>
-            This is my profile and I have some words
+            Jeanne is a former preschool teacher who loves to do all things arts and crafts with her kid. Follow their journey here. Hope you find some inspiration.
           </p>
           <p>
             Send tips to: @jeanneluong on Venmo
