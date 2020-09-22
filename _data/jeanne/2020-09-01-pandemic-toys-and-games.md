@@ -22,8 +22,8 @@ So, I present to you my pandemic toy, game, and book haul. So you don’t think 
 
 I tried to get more of the activities that she like but also some educational toys and games to keep up some “academics” while school was closed.
 
-1. Blocks: We love these [Guidecraft Jr. Rainbow Blocks](https://amzn.to/34PWRMj). My kid never really got into building with regular wooden blocks but she liked these at the library so when her birthday came up, we put this on her wishlist. The set is small but you can build quite a few things with it. They’re especially fun because they have colorful transparent panel in the middle of the block. My kid likes to hold it up to her eyes as “glasses”. Not its intended use but she’s playing with it!  [](https://amzn.to/34PWRMj)
-2. Puzzles: Is it just me or are some of the designs on puzzles just so fugly? Well, I found a bunch that are not. Some of these are shaped which make them doubly adorable. We have mama & kiddo puzzle time where we each do our own puzzles. I love it. We have the ones listed below.
+1. **Blocks**: We love these [Guidecraft Jr. Rainbow Blocks](https://amzn.to/34PWRMj). My kid never really got into building with regular wooden blocks but she liked these at the library so when her birthday came up, we put this on her wishlist. The set is small but you can build quite a few things with it. They’re especially fun because they have colorful transparent panel in the middle of the block. My kid likes to hold it up to her eyes as “glasses”. Not its intended use but she’s playing with it!  [](https://amzn.to/34PWRMj)
+2. **Puzzles**: Is it just me or are some of the designs on puzzles just so fugly? Well, I found a bunch that are not. Some of these are shaped which make them doubly adorable. We have mama & kiddo puzzle time where we each do our own puzzles. I love it. We have the ones listed below.
 
    * [Mudpuppy Fire Truck Shaped Mini Puzzle](https://amzn.to/2YTIZN8)
    * [Mudpuppy Rainbow Lion Shaped Mini Puzzle](https://amzn.to/3lCA2l6)
@@ -32,7 +32,7 @@ I tried to get more of the activities that she like but also some educational to
    * [Andy Warhol Wood Puzzle Set](https://amzn.to/2FGndWv)
    * [Playhouse Assorted Donuts 24-Piece Die Cut Shaped Mini Puzzle](https://amzn.to/35JMIkz)
    * [Playhouse Tabby Kitten 25-Piece Die-Cut Shaped Mini Puzzle](https://amzn.to/3hE098f)
-3. Educational Electronic Games: This [Square Panda Multisensory Phonics Playset](https://amzn.to/3jxwjU4) was recommended by a mom on a parent app I use and my kid loves it because it’s interactive with interchangeable letters that you place on a board. The games are fun with adorable characters. And I actually think she’s learning how to read from it.  [](https://amzn.to/3jxwjU4)
+3. **Educational Electronic Games**: This [Square Panda Multisensory Phonics Playset](https://amzn.to/3jxwjU4) was recommended by a mom on a parent app I use and my kid loves it because it’s interactive with interchangeable letters that you place on a board. The games are fun with adorable characters. And I actually think she’s learning how to read from it.  [](https://amzn.to/3jxwjU4)
 4. Art Kits: While I usually piece meal our kid art activities, sometimes mama is tired so I pulled out one of these [Crayola Paint Your Own Figurines ](https://amzn.to/2YBKa3A) kits where my kid can work independently. 
 5. Jewelry Stand: This [LEGO DOTS Rainbow Jewelry Stand](https://amzn.to/3hsc2ia) was a birthday gift and I love it because it’s such a fun alternative to a music jewelry box. And it’s LEGO! [](https://amzn.to/3hsc2ia)
 6. Light Box: This [LED Light Box for Tracing](https://amzn.to/2YEH6E9) was another birthday gift. I put it on kiddo’s wishlist because it’s something that we both can use. I use it for tracing drawings onto watercolor paper. She does tracing on it too but it also doubles as a cheaper alternative to a traditional light box which sometimes is $$$. [](https://amzn.to/2YEH6E9)
