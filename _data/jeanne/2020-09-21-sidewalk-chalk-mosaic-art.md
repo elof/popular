@@ -14,7 +14,7 @@ Sidewalk chalk has always been a staple in our arsenal of art supplies. It's eas
 * [Sidewalk chalk](https://amzn.to/2QrzS1F)
 * [Masking tape](https://amzn.to/32dQwZb)
 
-![]()
+![](/assets/How to Make sidewalk Chalk MOsaic art.png)
 
 ### Steps:
 
