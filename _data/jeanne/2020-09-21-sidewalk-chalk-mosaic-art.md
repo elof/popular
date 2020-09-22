@@ -16,4 +16,11 @@ We probably did one a day for about a week and a half then the novelty wore off.
 * [Sidewalk chalk](https://amzn.to/2QrzS1F)
 * [Masking tape](https://amzn.to/32dQwZb)
 
+![]()
+
 ### Steps:
+
+1. Find a spot on the sidewalk.
+2. Tape off your border shape. We made a square because conveniently the sidewalk is divided into squares already but you can make any shape. Go wild with your imagination.
+3. Here comes the fun part: creating the "mosaic". Start tearing of strips in varying lengths of masking tape. Place them within your border, making sure that each end of the strip is always touching another piece of tape. 
+4. Now you color within each shape! Tip: Before you color, make sure to press down the tape all around your design to make sure the edges are clean when you pull off tape after coloring.
