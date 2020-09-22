@@ -12,3 +12,8 @@ We probably did one a day for about a week and a half then the novelty wore off.
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
 ### Supplies needed:
+
+* [Sidewalk chalk](https://amzn.to/2QrzS1F)
+* [Masking tape](https://amzn.to/32dQwZb)
+
+### Steps:
