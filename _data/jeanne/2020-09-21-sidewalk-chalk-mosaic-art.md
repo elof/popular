@@ -9,6 +9,8 @@ Sidewalk chalk has always been a staple in our arsenal of art supplies. It's eas
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
+
+
 ### Supplies needed:
 
 * [Sidewalk chalk](https://amzn.to/2QrzS1F)
