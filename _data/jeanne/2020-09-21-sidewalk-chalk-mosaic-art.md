@@ -22,18 +22,25 @@ We probably did one a day for about a week and a half then the novelty wore off.
 
 1. Tape off your border shape. We made a square because conveniently the sidewalk is divided into squares already but you can make any shape. Go wild with your imagination.
 2. Here comes the fun part: creating the "mosaic". Start tearing of strips in varying lengths of masking tape. Place them within your border, making sure that each end of the strip is always touching another piece of tape. 
-3. Now you color within each shape! 
+
+![](/assets/IMG_5176 2.jpeg)
+
+1. Now you color within each shape! 
 
    Tip: Before you color, make sure to press down the tape all around your design to make sure the edges are clean when you pull off tape after coloring.
 
 ![](/assets/IMG_5180 2.jpeg)
 
-3. Peel off tape. This is the most satisfying part.
+![](/assets/IMG_4916.jpeg)
 
-4. Repeat steps 1-4 until you color your whole sidewalk. I'm not even kidding. We did several. Here's the final result:
+2. Peel off tape. This is the most satisfying part.
+
+3. Repeat steps 1-4 until you color your whole sidewalk. I'm not even kidding. We did several. Here's the final result:
 
 ![](/assets/IMG_5182 2.jpeg)
 
 This photo is after one week in the elements with people walking over it. Lasts quite a long time. 
 
 ![](/assets/IMG_4968.jpeg)
+
+Oh, before I go. Make sure you don't color on space that isn't yours. Our mosaic spilled a bit over on the neighbor's property and they got pissed. So we had to hose it down. That's why I don't have pictures of the other mosaics we did. Yikes. =) Anyway, if you try it tag me on Instagram @123createwithme. Bye!
