@@ -5,7 +5,7 @@ date: 2020-09-23T22:15:00.524Z
 title: Sidewalk Chalk Mosaic Art
 thumbnail: /assets/sharon-mccutcheon-YZOVz5f3SBo-unsplash.jpg
 ---
-Sidewalk chalk has always been a staple in our arsenal of art supplies. It's easy to use, low mess, and fun for all ages. During the begin of quarantine, sidewalk chalk was one of those hard to find items like toilet paper and hand sanitizer. All the children were stuck at home and everyone was finding ways to keep their littles occupied. A happy medium of quarantine was being able to sit on the stoop and get fresh air while doodling with sidewalk chalk. Then I saw a mom friend do these nifty chalk "mosaics" on the sidewalk, and we tried it right away. We probably did one a day for about a week and a half then the novelty wore off. Anyway, without further ado, if you want to learn how to do this, follow along below.
+Sidewalk chalk has always been a staple in our arsenal of art supplies. It's easy to use, low mess, and fun for all ages. During the begin of quarantine, sidewalk chalk was one of those hard to find items like toilet paper and hand sanitizer. All the children were stuck at home and everyone was finding ways to keep their littles occupied. A happy medium of quarantine was being able to sit on the stoop and get fresh air while doodling with sidewalk chalk. I saw a mom friend do these nifty chalk "mosaics" on the sidewalk, and we tried it right away. Chalk game leveled up! We probably did one a day for about a week and a half then the novelty wore off. Anyway, without further ado, if you want to learn how to do this, follow along below.
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
@@ -13,8 +13,6 @@ Sidewalk chalk has always been a staple in our arsenal of art supplies. It's eas
 
 * [Sidewalk chalk](https://amzn.to/2QrzS1F)
 * [Masking tape](https://amzn.to/32dQwZb)
-
-
 
 ![](/assets/How to Make sidewalk Chalk MOsaic art.png)
 
@@ -42,7 +40,7 @@ Tip: Before you color, make sure to press down the tape all around your design t
 
 ![](/assets/IMG_8829.jpeg)
 
-5. Repeat steps 1-4 until you color your whole sidewalk. I'm not even kidding. We did several over the next few days. 
+5. Repeat steps 1-4 until you color your whole block. Kidding. However, we did make several over the next few days. 
 
 Here's the final result:
 
