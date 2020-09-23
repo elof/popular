@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /sidewalk-chalk-mosiac-art
-date: 2020-09-23T22:15:00.524Z
+date: 2020-09-24T05:15:00.000Z
 title: Sidewalk Chalk Mosaic Art
 thumbnail: /assets/sharon-mccutcheon-YZOVz5f3SBo-unsplash.jpg
 ---
