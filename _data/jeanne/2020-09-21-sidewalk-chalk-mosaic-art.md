@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /sidewalk-chalk-mosiac-art
-date: 2020-09-21T22:15:00.524Z
+date: 2020-09-23T22:15:00.524Z
 title: Sidewalk Chalk Mosaic Art
 thumbnail: /assets/sharon-mccutcheon-YZOVz5f3SBo-unsplash.jpg
 ---
@@ -9,12 +9,12 @@ Sidewalk chalk has always been a staple in our arsenal of art supplies. It's eas
 
 \*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
 
-
-
 ### Supplies needed:
 
 * [Sidewalk chalk](https://amzn.to/2QrzS1F)
 * [Masking tape](https://amzn.to/32dQwZb)
+
+
 
 ![](/assets/How to Make sidewalk Chalk MOsaic art.png)
 
@@ -24,20 +24,27 @@ Sidewalk chalk has always been a staple in our arsenal of art supplies. It's eas
 
 ![](/assets/IMG_8798.jpeg)
 
-1. Here comes the fun part: creating the "mosaic". Start tearing of strips in varying lengths of masking tape. Place them within your border, making sure that each end of the strip is always touching another piece of tape. 
+2. Here comes the fun part: creating the "mosaic". Start tearing of strips in varying lengths of masking tape. Place them within your border, making sure that each end of the strip is always touching another piece of tape. 
+
+![](/assets/IMG_8804.jpeg)
 
 ![](/assets/IMG_5176 2.jpeg)
 
-1. Now you color within each shape! 
+3. Now you color within each shape! 
 
-   Tip: Before you color, make sure to press down the tape all around your design to make sure the edges are clean when you pull off tape after coloring.
+Tip: Before you color, make sure to press down the tape all around your design to make sure the edges are clean when you pull off tape after coloring.
 
 ![](/assets/IMG_5180 2.jpeg)
 
-![]()
-
 2. Peel off tape. This is the most satisfying part.
-3. Repeat steps 1-4 until you color your whole sidewalk. I'm not even kidding. We did several over the next few days. Here's the final result:
+
+![](/assets/IMG_8814.jpeg)
+
+![](/assets/IMG_8829.jpeg)
+
+5. Repeat steps 1-4 until you color your whole sidewalk. I'm not even kidding. We did several over the next few days. 
+
+Here's the final result:
 
 ![](/assets/IMG_5182 2.jpeg)
 
