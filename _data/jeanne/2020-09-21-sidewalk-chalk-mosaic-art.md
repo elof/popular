@@ -50,4 +50,4 @@ This photo is after one week in the elements with people walking over it. Lasts 
 
 ![](/assets/IMG_4968.jpeg)
 
-Oh, before I go. Make sure you don't color on space that isn't yours. Our mosaic spilled a bit over on the neighbor's property and they got pissed. So we had to hose it down. That's why I don't have pictures of the other mosaics we did. Whoops. =) Anyway, if you try this art project tag me on Instagram @123createwithme. Bye!
+Oh, one more thing before I go. Make sure you don't color on space that isn't yours. Our mosaic spilled a bit over on the neighbor's property and they got pissed. So we had to hose it down. That's why I don't have pictures of the other mosaics we did. Whoops. =) Anyway, if you try this art project tag me on Instagram @123createwithme. Bye!
