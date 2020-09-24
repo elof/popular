@@ -17,9 +17,11 @@ Eric Carle is ubiquitous amongst children's literature. For good reason because 
 * Scissors
 * Glue 
 
-### Steps: 
+### Steps:
 
 1. Paint the tracing paper with liquid watercolors. We painted many sheets in a variety of colors. The tutorial we followed called for using crayons to rub textures onto paper but we skipped that step. 
+
+![]()
 
 2. Let tracing paper dry. We placed it in the sun so it sped up drying time. 
 
@@ -27,6 +29,14 @@ Tip: You can also use a blowdryer if you want to keep going with the activity in
 
 3. Once the tracing paper is dry, you can use your scissors to cut out different shapes for your collage. 
 
+![]()
+
 4. Now it's time to assemble your collage. We like to lay out our design on paper before glueing but you can just glue as you go. 
 
-And that's it. This is how ours turned out. Kiddo and I both made two. I like how they turned out so colorful and vibrant. Let me know if you try it. And takes for stopping by. Bye!
+![]()
+
+And that's it. This is how ours turned out. Kiddo and I both made two. 
+
+![]()
+
+I like how they turned out so colorful and vibrant. Let me know if you try it. And takes for stopping by. Bye!
