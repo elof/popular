@@ -5,6 +5,8 @@ date: 2020-09-24T18:46:32.734Z
 title: Nature Collages
 thumbnail: /assets/amy-shamblen-qdPnQuGeuwU-unsplash.jpg
 ---
+Fall is my next favorite season after summer. Weather is changing and the colors in nature are just marvelous at this time. It's the perfect time to take a stroll and admire this yearly phenomena. We wanted to capture nature's beauty in an art project. And nature collages are the perfect way to do that. Theyre quite easy to make and don't require many materials. Follow along to see how to do it. 
+
 #### Supplies:
 
 * [Contact Paper](https://amzn.to/3377Uy0)
