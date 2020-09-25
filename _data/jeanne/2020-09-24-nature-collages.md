@@ -3,11 +3,11 @@ template: BlogPost
 path: /nature-collage
 date: 2020-09-24T18:46:32.734Z
 title: Nature Collages
-thumbnail: ''
+thumbnail: /assets/amy-shamblen-qdPnQuGeuwU-unsplash.jpg
 ---
 #### Supplies:
 
-* Contact Paper
+* [Contact Paper](https://amzn.to/3377Uy0)
 * Leaves, flower petals, and other foliage
 
 #### Steps:
