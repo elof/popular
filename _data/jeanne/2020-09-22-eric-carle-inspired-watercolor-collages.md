@@ -13,8 +13,8 @@ Eric Carle is ubiquitous amongst children's literature. For good reason because 
 
 ### Supplies needed:
 
-* Tracing paper
-* Liquid watercolors
+* [Tracing paper](https://www.amazon.com/Strathmore-370-9-Tracing-Bound-Sheets/dp/B0027AAIB2/ref=sr_1_1?dchild=1&keywords=strathmore+tracing+paper&qid=1600967422&sr=8-1)
+* [Liquid watercolors](https://www.amazon.com/Dr-Ph-Martins-Radiant-Concentrated/dp/B000P7V3T0/ref=sr_1_1?crid=1FMW3U3P5MPFJ&dchild=1&keywords=dr+ph+martins+radiant+concentrated+watercolor&qid=1600711490&sprefix=dr+ph+martins%2Caps%2C273&sr=8-1)
 * Paintbrush
 * Scissors
 * Glue 
