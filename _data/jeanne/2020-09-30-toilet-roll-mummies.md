@@ -9,6 +9,8 @@ I decided that we would sprinkle some Halloween arts and crafts between our othe
 
 So, today we're making toilet roll mummies. These are adorable and so easy to make with regular household items. Things I'm certain you have already. What? You don't hoard toilet rolls for kid crafts? =) Well, start saving them so you can make this with us. Let us show you how. 
 
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
 ![](/assets/Toilet Roll Mummy.png)
 
 #### Supplies needed:
