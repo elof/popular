@@ -3,7 +3,7 @@ template: BlogPost
 path: /toilet-roll-mummies
 date: 2020-09-30T17:09:38.374Z
 title: Toilet Roll Mummies
-thumbnail: /assets/jen-theodore-KDu-62mZGcA-unsplash.jpg
+thumbnail: /assets/jason-blackeye-iHPi43-zVDk-unsplash.jpg
 ---
 I decided that we would sprinkle some Halloween arts and crafts between our other warm weather cheery crafts. Why? Well, we just can't wait. We love celebrating Halloween. And my kid asked if we could make more spooky decorations. Duh! YES!
 
