@@ -1,7 +1,7 @@
 ---
 template: BlogPost
 path: /paper-bag-pumpkins
-date: 2020-10-05T07:23:00.000Z
+date: 2020-10-05T19:23:00.000Z
 title: Paper Bag Pumpkins
 thumbnail: /assets/maddy-baker-gS32T4TxSJY-unsplash.jpg
 ---
