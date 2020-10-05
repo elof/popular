@@ -11,4 +11,27 @@ It's officially October (cue the cheering and applause). What that means is that
 
 #### Supplies needed:
 
+* Larger shopping bags
+* [Orange paint](https://www.amazon.com/gp/product/B004DJ68A0/ref=ppx_yo_dt_b_asin_title_o06_s04?ie=UTF8&psc=1)
+* [Green masking tape](https://amzn.to/32dQwZb)
+* [Green construction paper](https://amzn.to/34BRDDG)
+
 #### Steps:
+
+1. Take the handles off the bags and open them up. 
+
+2. Rip the bags apart and crumple them up. 
+
+3. Stuff the open shopping bags full with the crumpled paper. Keep doing this until you get the size you'd like but make sure it isn't too full (we filled it to about half full).
+
+4. Grab the top and scrunch it into a stem shape. 
+
+5. Wrap the top with the green masking tape until it's secure.
+
+6. Now it's time to paint the pumpkin.
+
+7. After your paint is dried, you can cut out your tendrils. 
+
+8. Tape tendrils on around the stem with green masking tape.
+
+There you have it. The cutest pumpkin to throw in with your spooky decor.
