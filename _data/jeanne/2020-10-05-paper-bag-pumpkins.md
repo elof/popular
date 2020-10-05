@@ -22,18 +22,27 @@ It's officially October (cue the cheering and applause). What that means is that
 
 ![](/assets/IMG_8915.jpeg)
 
-1. Rip the bags apart and crumple them up. 
+2. Rip the bags apart and crumple them up. 
 
 ![](/assets/IMG_8931.jpeg)
 
 ![](/assets/IMG_8963.jpeg)
 
-Stuff the open shopping bags full with the crumpled paper. Keep doing this until you get the size you'd like but make sure it isn't too full (we filled it to about half full).
+3. Stuff the open shopping bags full with the crumpled paper. Keep doing this until you get the size you'd like but make sure it isn't too full (we filled it to about 3/4 full).
 
-1. Grab the top and scrunch it into a stem shape. 
-2. Wrap the top with the green masking tape until it's secure.
-3. Now it's time to paint the pumpkin.
-4. After your paint is dried, you can cut out your tendrils. 
-5. Tape tendrils on around the stem with green masking tape.
+![](/assets/IMG_8945.jpeg)
+
+4. Grab the top and scrunch it into a stem shape and wrap the top with the green masking tape until it's secure.
+
+![](/assets/IMG_8946.jpeg)
+
+![](/assets/IMG_8950.jpeg)
+
+![](/assets/IMG_8954.jpeg)
+
+5. Now it's time to paint the pumpkin.
+
+1. After your paint is dried, you can cut out your tendrils. 
+2. Tape tendrils on around the stem with green masking tape.
 
 There you have it. The cutest pumpkin to throw in with your spooky decor.
