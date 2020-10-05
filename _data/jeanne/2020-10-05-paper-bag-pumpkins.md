@@ -56,6 +56,12 @@ It's officially October (cue the cheering and applause). What that means is that
 
 7. Tape tendrils on around the stem with green masking tape.
 
+![](/assets/IMG_9013.jpeg)
 
+![](/assets/IMG_9010.jpeg)
 
 There you have it. The cutest pumpkin to throw in with your spooky decor.
+
+![](/assets/IMG_9016.jpeg)
+
+Hope you have a great time making these. We'll be back with more halloween crafts! Bye.
