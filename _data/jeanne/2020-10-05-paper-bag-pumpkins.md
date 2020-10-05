@@ -42,7 +42,20 @@ It's officially October (cue the cheering and applause). What that means is that
 
 5. Now it's time to paint the pumpkin.
 
-1. After your paint is dried, you can cut out your tendrils. 
-2. Tape tendrils on around the stem with green masking tape.
+![](/assets/IMG_8960.jpeg)
+
+6. After your paint is dried, you can cut out your tendrils. Make a lengthwise cut and move all the way about an inch shy of the top the turn your paper. Cut all around until you get to the middle. 
+
+![](/assets/IMG_8999.jpeg)
+
+![](/assets/IMG_9002.jpeg)
+
+![](/assets/IMG_8995.jpeg)
+
+![](/assets/IMG_9007.jpeg)
+
+7. Tape tendrils on around the stem with green masking tape.
+
+
 
 There you have it. The cutest pumpkin to throw in with your spooky decor.
