@@ -9,6 +9,8 @@ It's officially October (cue the cheering and applause). What that means is that
 
 So to mark the beginning of our favorite month, we're making paper bag pumpkins! This is one of my favorite fall/halloween crafts because it's a good way to reuse materials and it's easy enough to involve the kid in every step. Follow along to see how it's done.
 
+\*\**This post contains affiliate links that pay out a small commission if you happen to purchase products through them.  If we post an affiliate link to a product, rest assured that it is something that I would personally buy and use without an affiliate commission. I am just a passionate former preschool teacher and mama that loves all things kid art related. 
+
 ![](/assets/Top 5 Toy Dog Breeds for the Family.png)
 
 #### Supplies needed:
