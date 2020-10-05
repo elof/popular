@@ -20,6 +20,8 @@ It's officially October (cue the cheering and applause). What that means is that
 
 1. Take the handles off the bags and open them up. 
 
+
+
 2. Rip the bags apart and crumple them up. 
 
 3. Stuff the open shopping bags full with the crumpled paper. Keep doing this until you get the size you'd like but make sure it isn't too full (we filled it to about half full).
