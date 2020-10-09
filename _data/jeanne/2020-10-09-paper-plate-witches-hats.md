@@ -10,8 +10,12 @@ We're going to continue with the Halloween theme and make these adorable witches
 
 Anyway, my kid loves that book and I thought it'd be fun to use that book as craft inspiration. So, grab the supplies from the list below and follow along to make this easy craft with us. 
 
+#### Supplies needed:
 
+* Paper plate
+* Plain color party hat
+* Black acrylic paint
+* Glitter (Optional)
+* Tacky glue (or glue gun)
 
-Supplies needed:
-
-Steps:
+#### Steps:
