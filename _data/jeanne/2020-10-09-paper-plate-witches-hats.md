@@ -47,6 +47,8 @@ Tip: The flaps aren't the easiest to glue on party hat with regular glue. I had 
 
 ![](/assets/IMG_9266.jpeg)
 
+![](/assets/IMG_9267.jpeg)
+
 Ta-da! This is by far one of the easiest and most creative crafts we've done. My kid wears hers everywhere. 
 
 ![](/assets/IMG_9298.JPG)
