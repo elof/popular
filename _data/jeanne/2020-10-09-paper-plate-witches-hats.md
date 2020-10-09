@@ -11,7 +11,7 @@ We're going to continue with the Halloween theme and make these adorable witches
 
 Anyway, my kid loves that book and I thought it'd be fun to use that book as craft inspiration. So, grab the supplies from the list below and follow along to make this easy craft with us. 
 
-![]()
+![](/assets/Paper plate WItch Hats.png)
 
 #### Supplies needed:
 
@@ -25,22 +25,30 @@ Anyway, my kid loves that book and I thought it'd be fun to use that book as cra
 
 1. Paint your paper plate and party hat black. Add glitter if you'd like after.
 
-![]()
+![](/assets/IMG_9185.jpeg)
+
+![](/assets/IMG_9186.jpeg)
 
 2. Flip plate to the back (unpainted side) and trace a circle using the party hat as a stencil.
 
-![]()
+![](/assets/IMG_9201.jpeg)
 
 3. Use a ruler and draw lines to divide circle up then use an exacto knife to score the lines. Push up the flaps, your plate should look like this (second picture).
 
-![]()
+![](/assets/IMG_9204.jpeg)
+
+![](/assets/IMG_9205.jpeg)
 
 4. Now use tacky glue to glue the party hat to plate. 
 
-![]()
+![](/assets/IMG_9252.jpeg)
 
 Tip: The flaps aren't the easiest to glue on party hat with regular glue. I had to use an additional party hat to hold flaps in place so they don't keep popping off. You might want to use glue gun instead so it will dry instantly. 
 
-![]()
+![](/assets/IMG_9266.jpeg)
 
-Ta-da! This is by far one of the easiest and most creative crafts we've done. My kid wears hers everywhere. Keep following for more Halloween crafts in the future. Thanks for stopping by! Bye!
+Ta-da! This is by far one of the easiest and most creative crafts we've done. My kid wears hers everywhere. 
+
+![](/assets/IMG_9298.JPG)
+
+Keep following for more Halloween crafts in the future. Thanks for stopping by! Bye!
