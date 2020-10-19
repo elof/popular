@@ -16,4 +16,11 @@ Everyone knows the vinegar and baking soda science activity. Well, I found this 
 
 #### Steps:
 
-1.
+1. Put a few drops of each color in separate bowls.
+2. Mix the food color with 2 Tbsp of water then add 1/2 cup of baking soda. Mix well until you have a coarse mixture. 
+
+   Tip: This mixture was only enough to make 1 egg of each color. Maybe because our dinosaurs were bigger. We used 2-2.5" dinosaurs. Next time I'll double or triple the ingredients. 
+3. Now, form your eggs by grabbing a bunch of the wet mixture and closing your fist around it to make an egg shape. 
+
+   Tip: We had a tough time with this part because the baking soda mixture was too dry and had to add more water. So don't be afraid to adjust the mixture as needed.
+4. We made another batch of plain white eggs because there wasn't enough baking soda paste to make more than one of each color.
