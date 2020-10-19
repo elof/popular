@@ -23,4 +23,8 @@ Everyone knows the vinegar and baking soda science activity. Well, I found this 
 3. Now, form your eggs by grabbing a bunch of the wet mixture and closing your fist around it to make an egg shape. 
 
    Tip: We had a tough time with this part because the baking soda mixture was too dry and had to add more water. So don't be afraid to adjust the mixture as needed.
-4. We made another batch of plain white eggs because there wasn't enough baking soda paste to make more than one of each color.
+4. We made another batch of plain white eggs because there wasn't enough baking soda paste to make more than one of each color. You can do this by mixing together 1 cup of baking soda and 1/4 cup of water. 
+5. Now comes the fun part, you get to "hatch" the eggs. 
+
+   Tip: A medicine syringe (you know the ones that come with the liquid kid's tyelnol) worked best for my kid. She lacked the dexterity to squeeze the pipette to get enough vinegar to make baking soda fizz. And a squirt bottle dumped too much vinegar all at once. 
+6. Keep going! Just because the dinosaurs hatched doesn't mean the activity is over. My kid got a spoon and a cup and stayed working on this for a long while. She was erupting "volcanoes".
