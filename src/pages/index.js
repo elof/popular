@@ -1,11 +1,11 @@
 import React from "react"
 import Helmet from 'react-helmet';
-import { StaticQuery, graphql, Link } from "gatsby"
+import { graphql } from 'gatsby'
 import Layout from "../components/layout"
 import PostLink from "../components/post-link"
 import HeroHeader from "../components/heroHeader"
 
-const IndexPage = ({
+const JeannePage = ({
   data: {
     site,
     allMarkdownRemark: { edges },
@@ -22,32 +22,38 @@ const IndexPage = ({
         <title>{site.siteMetadata.title}</title>
         <meta name="description" content={site.siteMetadata.description} />
       </Helmet>
-      {/* <HeroHeader/> */}
-      <div className="home-page-intro">
-        <h1>Share your expertise, make money</h1>
-        <p>
-        What are you passionate about? What have you recently researched? Are you really into Tennis? Why don’t you tell people what gear you use and why you like it. Recently got started with wood working? Show off some things you made and tell people what tools they will need to get started making their own! Everyone has their thing, share it with the world.
-        </p>
-        <br></br>
-        <p>
-        PopularAF is more or less a blogging platform. We provide you a free profile, followers can subscribe to your feed and leave tips. We convert products you recommend into affiliate links, which means you get paid for a percent of any product your fans buy after clicking on your product reccomendations!
-        </p>
-        <br></br>
-        <p>
-        <Link to='/apply' className="button -primary">Apply to be an author &rarr;</Link>
-        </p>
+      <div className="author">
+      <img className="author-profile-image" src="/assets/jeanne.jpg" alt="Profile Photo"></img>
+        <div className="author-introduction">
+          <h2>Jeanne</h2>
+          <p>
+            Jeanne is a former preschool teacher who loves to do all things arts and crafts with her kid. Follow their journey here. Hope you find some inspiration.
+          </p>
+          <p>
+            Send tips to: @jeanneluong on Venmo
+          </p>
+        </div>
       </div>
-      {/*  <h3>Blog Posts &darr;</h3>
+      <h2>Posts &darr;</h2>
       <div className="grids">
-         {Posts}
-      </div> */}
+        {Posts}
+      </div>
+      <div>
+        <form name="MailingList" method="post" className="author-form-container" netlify-honeypot="bot-field" data-netlify="true" >
+        <input type="hidden" name="form-name" value="MailingList" />
+        <div class="hidden">
+          <input type="hidden" name="bot-field" />
+        </div>
+            <label>Join Jeanne's Mailing List <input type="email" name="email" /></label>
+            <button type="submit" className="author-button -primary">Send</button>
+        </form>
+      </div>
     </Layout>
   )
 }
-
-export default IndexPage
+export default JeannePage
 export const pageQuery = graphql`
-  query indexPageQuery {
+  query jeannePageQuery {
     site {
       siteMetadata {
         title
