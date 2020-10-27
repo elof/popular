@@ -11,6 +11,8 @@ We always have a stockpile of egg cartons and paper plates so this idea came to 
 
 Anyway, enough talking and onto the making...
 
+![](/assets/IMG_9286.jpeg)
+
 #### Supplies needed:
 
 * Paper plate
@@ -42,7 +44,5 @@ Anyway, enough talking and onto the making...
 5. Glue on googly eyes and wrap one of the legs around the spider web.
 
 ![](/assets/IMG_9285.jpeg)
-
-![](/assets/IMG_9286.jpeg)
 
 And voila. Such a cute craft. Thanks for stopping by. Have fun!
